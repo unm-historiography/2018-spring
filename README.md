@@ -12,13 +12,14 @@ There are three ways to post work here, you should use whichever you find easies
 * Click on the "Create new file" button
 * Name your file appropriately (remember the .md extension)
 * Type your post into the text box
-* Commit your work with the green Commit button at the bottom
+* Commit your work with the green "Commit New File" button at the bottom
+* You can always edit your file after you commit it---click on your filename, then click the pencil icon.
 
 ### Writing somewhere else
-If you write on GitHub (or anywhere online), it's not convenient to save your work in progress (you can, but you have to click a few times to start editing again). Also, if you lose your internet connection while writing, you will lose your work. Also, you can't see how your Markdown will render as you write it. There are two few easy options to avoid these issues:
+If you write on GitHub (or anywhere online), it's not super convenient to save your work in progress (you can, but you have to click a few times to start editing again). Also, if you lose your internet connection while writing, you might lose your work because you won't be able to save it. Also, you can't see how your Markdown will render as you write it. There are two few easy options to avoid these issues:
 
 #### Dillinger
-If you want to preview your Markdown text as you write online, use [Dillinger](https://dillinger.io/). It saves your work as you go. When you are done writing, you can get it into GitHub in two ways:
+If you want to write online and preview your Markdown text as you write, use [Dillinger](https://dillinger.io/). It saves your work as you go. When you are done writing, you can get it into GitHub in two ways:
 
 One is as described above (Writing on GitHub), but you'll simply copy and paste your text from Dillinger into the edit window on GitHub.
 
@@ -26,9 +27,9 @@ Or, you can:
 * Export your text as a Markdown file (which saves it to your computer)
 * Be sure your file is named appropriately
 * Navigate to the appropriate assignment folder
-* Drag and drop your file from your computer to your browser window
+* Drag and drop your file from your computer (wherever you have saved it, perhaps your downloads folder) to your browser window
 
 #### Text Editor (highly recommended)
-You can also write your text offline in a text editor. **This way, you can more easily compose your assignment over a period of time, save it to your computer, and you will always have your own copy of your work.** I recommend that you download and use [Atom](http://atom.io). You can also preview your Markdown through the menu Packages->Markdown Preview->Toggle Preview.
+You can also write your text offline in a text editor. **This way, you can more easily compose your assignment over a period of time, save it to your computer, and you will always have your own copy of your work.** I recommend that you download and use the free text editor [Atom](http://atom.io). You can also preview your Markdown through the menu Packages->Markdown Preview->Toggle Preview.
 
-When you are ready to post it on GitHub, save it with an appropriate name, navigate on GitHub to the appropriate folder, and drag and drop your file. (same as above when exporting from Dillinger).
+When you are ready to post it on GitHub, save your file with an appropriate name (and .md extension), navigate on GitHub to the appropriate folder, and drag and drop your file. (same as above when exporting from Dillinger).
