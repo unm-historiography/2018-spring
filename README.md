@@ -3,9 +3,9 @@
 This is our repository for submitting and accessing course work. Remember that you must be logged into GitHub to add files to the repository.
 
 ## To post an assignment
-All work must be submitted in Markdown. If you are confused about Markdown, complete this [Markdown tutorial](https://www.markdowntutorial.com/). If you need syntax help, check out this [cheat sheet](https://www.markdownguide.org/cheat-sheet).
+All work must be submitted in Markdown. If you are new to Markdown, complete this [Markdown tutorial](https://www.markdowntutorial.com/). If you need syntax help, check out this [cheat sheet](https://www.markdownguide.org/cheat-sheet).
 
-There are three ways to post work here, you should use whichever you find easiest or most convenient.
+There are three ways to post work here; please use whichever you find easiest or most convenient.
 
 ### Writing on GitHub
 * Navigate to the appropriate assignment folder
@@ -13,7 +13,7 @@ There are three ways to post work here, you should use whichever you find easies
 * Name your file appropriately (remember the .md extension)
 * Type your post into the text box
 * Commit your work with the green "Commit New File" button at the bottom
-* You can always edit your file after you commit it---click on your filename, then click the pencil icon.
+* You can always edit your file after you commit it---click on your filename, then click the pencil icon. And don't forget to commit your changes (The green "Commit Changes" button at the bottom).
 
 ### Writing somewhere else
 If you write on GitHub (or anywhere online), it's not super convenient to save your work in progress (you can, but you have to click a few times to start editing again). Also, if you lose your internet connection while writing, you might lose your work because you won't be able to save it. Also, you can't see how your Markdown will render as you write it. There are two few easy options to avoid these issues:
