@@ -6,3 +6,4 @@
 - The study of history has multiple different types: political, economic, diplomatic, military, cultural, and social.
 - The different types of history use different sources. While political history can use political treaties and laws that were created, social history uses newpapers of the time, as well as records of arrests at the time.
 - The different types of history can also tell a more truthful story, instead of the image that the government of the time wants to project. Social history helps with this, as it uses accounts of the people of the time more than the published political documents. Instead of the dominant societies POV, social and cultural history can bring in the minorities POV.
+3
