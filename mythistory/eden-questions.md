@@ -7,7 +7,7 @@
 
 **4**. Mythistory seeks to "pilot" our experiences with the environment and with each other. How can this be a powerful tool for understanding and seeking the "*truth*" within history? (**p. 10**)
 
-**5**. Is truth within mythistory therefore something that is sought after and desired, or does that change depending on current societal pressures and wants? (**p. 10**) 
+**5**. Is truth within mythistory something that is sought after at all times, or does that change depending on current societal pressures and desirs? (**p. 10**) 
 
 
 
