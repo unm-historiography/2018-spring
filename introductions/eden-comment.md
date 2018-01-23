@@ -6,5 +6,5 @@ History is preeminently theoretical, fundamentally up to interpretation of the r
 
 The importance of history is not limited to the ability to comprehend and analyze, but as a reminder that records are being made. This makes everyone informed of their accountability; the "important" people will be recorded, and their actions will be written down. This goes without saying, but even the bias will be recorded, and it is up to future historians to discern the meaning behind the written record. While history is a means of record-keeping, it also serves as a portal to the past. It keeps the past close to heart and not out of mind, for those that care to listen and understand.
 
-While history has served as a form of pushing political agendas as well, it can be the only voice of the human experience as a form of representation. Political, cultural, intellectual and economic history provides the researcher a premise to act upon; a field of specialty and focus. These subgroups show the variety of historical literature and provide the history student an opportunity to reflect upon their interests. 
+Political, cultural, intellectual and economic history provides the researcher a premise to act upon; a field of specialty and focus. These subgroups show the variety of historical literature and provide the history student an opportunity to reflect upon their interests. 
 
