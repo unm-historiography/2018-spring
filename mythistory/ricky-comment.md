@@ -1,4 +1,4 @@
-**Mythistory, or Truth, Myth, History and Historians Comment**
+## Mythistory, or Truth, Myth, History and Historians Comment
 
 The divisive line created by opposing histories has led to a rise in nationalism and a greater divide between groups. This partiality naturally bleeds into historical documents, such as how many early sources evoke powerful images that cement a ruler’s legacy, regardless of the truth of their reign (p.5). McNeill aims to find what information should be trusted and what should be forgotten (p.5) As a historian himself, McNeill cites the liberal method of free marketplace, the idea that the truth will eventually be fact. However, this process came to a devastating point during the First World War. Nationalism skewed the liberal method for each nation, and millions perished as a result. Even after seeing the effects of nationalism, countries continue to exhibit these tendencies. The past century has seen groups fixated on their beliefs, and willing to wage total war to defend them.
 
