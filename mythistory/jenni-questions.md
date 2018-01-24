@@ -1,0 +1,7 @@
+Mythistory Discussion Questions
+
+1. McNeill opens his article by articulating that myth and history both explain "how things got to be the way they are," but myth is false and history is true (p.1). Assuming that his idea is correct, how do we prove that myth is indeed false, and history indeed true without relying on personal opinion? How do we choose what evidence is more true when multiple accounts exist?
+2. Are catalogues of established facts actually trivial, as McNeill says (p.2)? If so, why would historians bother compiling them?
+3. If sharing a common past is only one way to identify who "we" are, assuming the "we" is all people, how else do we identify ourselves (p.4)? If there are other ways to identify ourselves that are maybe easier, or more reliable, how come the study of history is such a long-standing tradition?
+4. Knowing that a "flattering" history could either guide a group towards survival in times of trial, like Britian of World War II in the example, or dangerous disagreement with foriegn ideas, like the United States and the Soviet Union shared, is it better to indulge in a flattering history or to avoid having one at all costs (p.6)?
+5. McNeill saya that historians are only useful if they say things people don't want to hear, but will only be listened to if they say things that the people want to hear (p.10). Is it then right to alter the interpretation of history to ensure people will listen?
