@@ -2,7 +2,7 @@
 
 2) Why might the study of History not be as "truthful" as we like to think it is? Can you give an example where one historian's truth might become another's myth?
 
-3) *McNeill* applauds the work of past historians, but he also purposes that there are limits to **scientific history**. Why does he feel this way? What are the limits as *McNeiil* sees them and do you agree with this assessment? **(pg.1-2,5-6)**
+3) *McNeill* applauds the work of past historians, but he also proposes that there are limits to **scientific history**. Why does he feel this way? What are the limits as *McNeiil* sees them and do you agree with this assessment? **(pg.1-2,5-6)**
 
 4) The author suggests that having too much choice from multiple **idea-systems** (psychology, economics, etc.) can create chaos and confusion for historians. Individuals will compete to prove their theory of history over another's narrative. Yet, *McNeill* also believes a **"free marketplace of ideas"** can benefit the pursuit for "historical truth". How might this be the case? What examples can you give from the article and current events that support the author's "faith" in the **liberal experiment**? **(p. 4)**
 
