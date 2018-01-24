@@ -1,5 +1,5 @@
 # **Mythistory Discussion/Questions**
-**1**. What does McNeill say about avoiding being *"flattering"* with the groups of people we (will eventually) write about as historians? (**p. 5**) How can we avoid this, and why is it important to do so? 
+**1**. What does McNeill say about avoiding being *"flattering"* with the groups of people we (will eventually) write about as historians? (**p. 5**) How can we avoid being "flattering", and why is it **important** to do so? 
 
 **2**. We must avoid calling "*trivia the truth*". How can we learn to discern the truth as historians? (**p. 8**)
 
