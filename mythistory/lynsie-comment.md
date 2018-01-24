@@ -1,4 +1,4 @@
-#### Mythistory, or Truth, Myth, History and Historians Comments
+### Mythistory, or Truth, Myth, History and Historians Comments
 
  McNeil’s article on Mythistory can best be described as he states, a “cacophonous confusion” (p. 4). While he was referring to historian’s ideas competing for attention within other social sciences, it fits for this article. Throughout _Mythistory_, McNeil criticizes historians, historiography, and society as a whole. However, McNeil's criticisms lack clarity and viable solutions. 
 
