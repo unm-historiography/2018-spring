@@ -1,3 +1,5 @@
+Summary-Myth and History
+
 •	Myth and history both tell some sort of a story, yet myth is considered to be false and history is considered to be true. A historian might declare someone else’s conclusion to be false and therefore mythical, while accepting his or her own conclusion to be true. (pg. 2)
 
 •	Scientific source criticism has often arranged facts into a readable narrative to produce scientific history and has been considered previously to be true and eternal, yet over time we have realized that the arrangement of facts to create a historical narrative must involve subjective judgements and intellectual choices, which has little to do with scientific criticism. (pg. 2)
