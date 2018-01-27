@@ -1,4 +1,4 @@
-## Summary 
+## Summary: Ancient History 
 
 * The history of history has been written from a Western perspective, with focus on the "developments of modern historical thinking" within this part of the world (Popkin, p. 25). 
 * Ethnocentricism is something even the Romans, in their obsession with property and civic growth, were guilty of in their depictions of history (*Roman Foundations*, p. 48). 
