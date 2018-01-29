@@ -1,6 +1,6 @@
 ## Summary: Ancient History 
 
-* The history of history has been written from a Western perspective, with focus on the "developments of modern historical thinking"(Popkin, p. 25). 
+* The history of history has been written from a Western perspective, with focus on the "developments of modern historical thinking" (Popkin, p. 25). 
 * Ethnocentricism is something even the Romans, in their obsession with property and civic growth, were guilty of in their depictions of history (*Roman Foundations*, p. 48). 
 * Herodotus and Thucydides, in the 5th century B.C.E. came to the conclusion that history **should be** the story of the deeds of humans, along with exceptional events that affected whole societies (Popkin, p. 27).
 * Thucydides used prose in his writings, without rhetoric, which still serves as model for modern telling of history (Popkin, p. 28). However, he used rhetoric in his speeches, which served a political use (*Roman Foundations*, p. 65). 
