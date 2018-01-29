@@ -6,7 +6,7 @@ Summary-Myth and History
 
 •	Pattern recognition is a method in which natural scientists and historians have used, either consciously or unconsciously. Natural science is neither external nor universal, but historical and evolutionary. This is because scientists accept a new theory only when the new embraces a wider range of phenomena or achieves a better explanation of selectively observed facts than previously posed. (pg. 3)
 
-•	Unlike natural scientists, historians often seek to attain conclusions on the greater complexity of behavior. Human beings react to the natural world and the mediation of symbols. Often, any theory about human life will alter actual behavior; inducing people to act as if the theories were true. (pg. 3)
+•	Unlike natural scientists, historians often seek to attain conclusions on the greater complexity of behavior, such as the reactions to the natural world and the mediation of symbols. Often, any theory about human life and complex human reactions, will alter actual behavior, reactions and intepretations; thus inducing people to act as if the theories were true. (pg. 3)
 
 •	Human beings are social creatures who share general, as well as, specific truths about the physical world and about human behavior. Without these shared truths groups have no social cement that allows for longevity and preservation, yet those truths can be perceived as myth. Also, those shared truths create social and ideological fragmentation and isolation. (pg. 4)
 
