@@ -1,0 +1,8 @@
+- Confucius (551-479 BCE) chronicled several centuries of events in Ancient China. These were later used to highlight important events and moral lessons learned. (HtoH-Net p.35)
+- Sima Qian (145-86 BCE) compiled the most influential work of early Chinese history, setting a model to be used for many centuries of Chinese historians.(HtoH-Net p.35)
+- Chinese chronicles were compiled more in the form of an encyclopedia, as opposed the narrative form of Ancient Greek historians.
+- Sima Qian included all aspects of Chinese life in his chronicles and recognized the role of women in Chinese society (HtoH-Net p.35)
+- Sima stressed that the lessons from the past were the best guides for the present.
+- With the advent and spread of Christianity in the Western world, new influences on history were intertwined with religious doctrine.
+- Christian historians in Europe bacame interested in examining how history helped to explain God's divine plan and how it showed evidence of it.
+- Literacy in the Middle Ages in Europe was largely confined to the Clergy, who controlled the narrative of History of the times.
