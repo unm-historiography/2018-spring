@@ -1,4 +1,4 @@
-#### I'll take my history with a side of compassion, thanks 
+## I'll take my history with a side of compassion, thanks 
 
 Giambattista Vico's (1668-1744) societal progression theory of history is incredibly bleak (p. 60). Instead of Disney's version of history seen on the ride *Carousel of Progress*, his depiction of the rise of civilization does not forfeit the inevitable decline. Would the Romans have ruled differently had they known they were going to decline? More importantly, is history *important* in that kind of society? This cycle of society theory challenges history in many ways because if decline is inevitable, why keep records? 
 
