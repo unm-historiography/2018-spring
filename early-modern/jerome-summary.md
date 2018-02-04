@@ -9,7 +9,7 @@ Jerome T. Mondragon
 
 - Johannes Guttenberg created the printing press around 1460. This invention revolutiony because historical works could be produced in greater numbers and were distrubed to a larger audience. (Popkin 53-54)
 
-- Dear Diary:
+- Dear Diary: <br/>
  I learned today that private diaries were an important source for historians. Diaries provided a freshness to personal accounts that other mediums couldn't match. However, I don't entirely believe that they provide a partial and subjective viewpoint. (Popkin 55)
 
 - **EXTRA! EXTRA! Read All About it! First periodical newspapers created in the early 1700s!** They provided a narrative of ongoing events to readers. Journalists also created a chronicle of recent events that historians of the day had largly abondoned. (Popkin 54) 
