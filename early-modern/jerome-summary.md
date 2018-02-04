@@ -14,7 +14,7 @@ Jerome T. Mondragon
 
 - **EXTRA! EXTRA! Read All About it! First periodical newspapers created in the early 1700s!** They provided a narrative of ongoing events to readers. Journalists also created a chronicle of recent events that historians of the day had largly abondoned. (Popkin 54) 
 
-- This comment was heavily censored by the authorities. With the success of the printing press, rulers had to control the influx of information available to the public. Many literary works, including historical writing, had to be evaluated before it could be published. (Popkin 54) Theatre performances were monitored and were often shut down by authorities since they contained political implications. (Popkins 55) 
+- This comment was heavily edited by the censors. With the success of the printing press, rulers had to control the influx of information available to the public. Many literary works, including historical writing, had to be evaluated before it could be published. (Popkin 54) Theatre performances were monitored and were often shut down by authorities since they contained political implications. (Popkins 55) 
 
 - Rulers used history to bolster their legitimacy. For example, Louis XIV commisioned the Academie des Inscriptions which contained numberous paintings thate bolsered his achievements. Historiographers were also hired to embilish rulers' accomplishments. (Popkin 57) 
 
