@@ -3,7 +3,7 @@ Jerome T. Mondragon
 
 - The Renaissance began in northern Italy during the early 1500s. (Popkin 43-44) Forgeries and accuracy was a major concern for historians. Forgers could easily duplicate historical writing. An important example was discovery by Lorenzo Valla in which the donation of Constantine was actually forged. (Popkin 48) Historians applied a scientific method in evaluating and creating historical literature. (Popkin 48) 
 
-- Humanism was the close study of classical antiquity which began in Northern Italy during the early 1300s (Popkin 48-49) Greek and Latin was revived which made it possible to for historians to rediscover ancient texts. (Popkin 49)
+- Humanism was the close study of classical antiquity which began in Northern Italy during the early 1300s. (Popkin 48-49) Greek and Latin was revived which made it possible to for historians to rediscover ancient texts. (Popkin 49)
 
 - The Enlightenment Movement was a time when intellectuals challenged the authority of the Bible and the church. Enligthenment historians emphasized a hopeful future rather than the disfuntional past. (Popkin 59-60)  
 
