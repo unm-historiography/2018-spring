@@ -6,5 +6,5 @@ According to Vico, there is **growth and decay**, a natural progression of any l
 
 If all past societies have gone through this same cycle, then there is *no point* to history. There is no learning from the past and no improvement for the future. Everything becomes quite bleak in this world Vico has painted, and it is something I want no part of. This is not an accurate depiction of history. There is *gradual* improvement and a continuously evolving standard of humanity that occurs within society. How would history be recorded if decline was inevitable? Wouldn't the past records prove this as a fact, and then proper steps could be taken to **avoid** falling apart? (Is that what we are facing now?) We learn from the past and apply it to our future. We understand the brutality and horrors of the Roman Empire and Nazi Germany and slavery in the United States so we can **avoid** making those same mistakes. Is history important to the kind of society that simply succumbs to the cyclical nature of things? Learning about the past holds **no value** if we follow Vico's three stages. Societies grow and expand, along with our knowledge as time progresses. We have more access to knowledge now than we ever did in the past. There is no excuse anymore. 
 
-
+8: very provocative with interesting questions, but could use a more focused argument.
 
