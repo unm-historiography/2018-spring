@@ -8,3 +8,4 @@
 
 5.	Can we export important historical skills of thorough scrutiny of sources and critical analyses into the public domain in an effective manner? Are these skills perhaps more important than ever in such an oversaturated information market? 
 	
+8: be careful that questions don't become _too_ general (esp 4 and 5); be sure how to explain how they emerged from the reading.
