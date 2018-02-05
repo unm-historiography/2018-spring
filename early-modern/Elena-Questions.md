@@ -10,4 +10,4 @@ Questions: *FHTH*,"The Historiographical Revolution of the Early Modern Era," p.
 
 5. The historiography of the Renaissance held the Ancient World in such a high regard, while the historiography of the Enlightenment welcomed the possibilities of the future. What are some of the positive or negative points behind either way of thinking about human history (the achievements of the past vs. what the future may bring)?
 
-
+8: aim for a blend reading-focused and general questions. as a set, these tend too much toward the speculative side. #5 has a nice idea behind it, but is too unfocused to facilitate discussion--need a clearer starting point and/or motivation).
