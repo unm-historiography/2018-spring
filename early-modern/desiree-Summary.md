@@ -19,7 +19,7 @@ Desiree' Martinez
 
 - Enlightenment thinkers now focused their framework on the future and what accomplishments it could bring. However, strong ties to culture and identity stimulated nationalist ideals in people like Johann Gottfried von Herder. He suggested that all nation's past were considered on their own terms. Thus, events like the French Revolution only progressed this rhetoric in writings. (p. 65)  
 
-
+8: Remember that summaries should present the level of detail you have here as well as broader synthetic summary points that reflect the tenor of the chapter as a whole. And remember to use markdown formatting to highlight your most important observations! 
 
 
 
