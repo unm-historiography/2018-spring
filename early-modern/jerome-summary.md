@@ -18,6 +18,6 @@ Jerome T. Mondragon
 
 - Rulers used history to bolster their legitimacy. For example, Louis XIV commisioned the Academie des Inscriptions which contained numberous paintings that bolsered his achievements. Historiographers were also hired to embilish rulers' accomplishments. (Popkin 57) 
 
-
+7: These are significant points, but one does not get the sense from them that there is any significant change in historiography underway, even with things like diaries as sources and printing presses to distribute historical works. Be sure to get both macro and micro points into your summaries.
 
 
