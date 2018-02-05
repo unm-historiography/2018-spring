@@ -9,3 +9,5 @@
 8. Should history be practiced as a form of literature, infused with drama and moral **(p.61)**?
 9. To what extent should religion be involved in historical narratives?
 10. According to Chinese historian, Sima Qian, history is not meant to teach moral lessons, but instead to find the truth within historical narratives **(p.66)**. How important are moral lessons to history?
+
+8: You do well with providing page numbers, but give a little more textual detail as to what prompts your question. (#10 is a good example). Also, remember to make a start in answering your own question based on what we've read so far. Be careful of super broad questions like #3 that don't make a specific connection to the reading (i.e. you could ask that question every week!), or questions like #5 that ask to examine historiography that we haven't really studied yet.
