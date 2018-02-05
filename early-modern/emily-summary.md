@@ -7,3 +7,5 @@
 6. Because of the creation of the printing press, history was able to be circulated more widely (pg. 66). This lead to the ability of a historian to making a living off of their writings, which would lead to history becoming a valid profession and an actual university class. 
 7. The chronicles and histories from the Middle Ages are not to be ignored. While they did drift away from the techniques used by ancient Greek and Roman historians, they still had their value. While the methodology of the Middle Ages would be swept aside for the new methodology of the Renaissance and Enlightenment periods, the histories created during that time period still held value (pg. 48).  
 8. The methodology of Renaissance and Enlightenment historians would be improved and molded more over time, but the basic principles would stay true to historians during the modern period. The periodical would emerge during this time period, and it would lead to what is now called peer review, one of the most critical methodologies in history today (pg. 55).
+
+9: could use markdown formatting a bit more to highlight key points; honestly having a hard time finding much to criticize.
