@@ -1,5 +1,7 @@
 **FHTH**, *“The 19th Century and the rise of academic scholarship,” 68-96*
 
+**Thomas Gil**, *"Leopold Ranke," 383-392*
+
 **Summary**
 
 1. The Nineteenth Century would experience a transformation within history into an academic discipline, which created more prestige and greater influence in politics and culture. As previous eras had looked to religion or philosophy to find historical truth, this new definitive century sought to seek reality of a specific era in terms of it's own individuality, rather than an example of some broader category. (Popkin, p. 69) New historical methods and approaches strayed away from the notion that human beings cannot alter their own history and more towards the notion of human agency and development. Within these new approaches, historians sought to appreciate individual eras of the past within it's own terms, rather than some overall scheme of progress or decline. (Popkin, p. 69)
