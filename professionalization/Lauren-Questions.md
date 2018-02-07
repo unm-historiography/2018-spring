@@ -11,3 +11,5 @@
 7. How were nationalist based historical writing practices beneficial for countries like Japan, Egypt, or India? Why were authors **Thomas Madiou and Alexis Beaubrun Ardouin** important for representing African histories and outweighing the racialist ideas from some Western historians? **(PG 85, 88-89)**
 8. How does Popkin's analysis of non-Western scholars and historians of the 19th century compare to his previous chapters? Has his representation improved?
 9. Do you agree with Thomas Gil that Leopold von Ranke believed **history is the best way to understand human nature and access social and political reality?** How did Ranke justify this belief while still staying true to his objectivity of "actual history"? **(Gil, pg. 389-390)**
+
+10: you do a nice job of asking in a particular bullet a series of questions that broadens from a specific passage to broader questions that hold significance for historiography more broadly. keep it up. also, be sure if you're asking very open ended questions that you provide a hint or two of an answer to focus discussion.
