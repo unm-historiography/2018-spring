@@ -7,3 +7,5 @@
 4. Does philosophy have a place in history? Where would Leopold Ranke stand on that question, and why does it matter to the transformation of historiography?
 5. Was there a fundamental change in history to make it more scientific, or is it just the view of the people that studied it that changed?
 6. When Gil speaks on Ranke's views and intentions of history, is Gil himself projecting modern historiographical ideologies onto Ranke's views? Or do Ranke's writings depict these ideologies as well?
+
+8: good questions, but say a little more in your questions about why they matter, such as how they highlight a contradiction in the reading. also, for questions like #6, paraphrase the analysis of Gil you're referring to so you're question is more approachable.
