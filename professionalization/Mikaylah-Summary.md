@@ -1,5 +1,5 @@
 ### The Rise of Academic Scholarship
-- The academic discipline of history is transformed in the 19th century as many historians begin writing on a larger scale (p.68). The idea of history as a story between nation-states also develops during this time (p.70). 
+- The academic discipline of history is transformed in the 19th century as many historians begin writing on a larger scale (p.68). The idea of history as a story between nation-states also develops during this time (p.70). Nation-state narratives become important as historians shift from writing about nations and their elite to writing about **nations and their people**.  
 - **Historicism**: Many 19th century historians focus on **change** and the individuality of each era (p.69).
 - The revolutionary era brought about an extreme focus on nation-states and the revolutionaries develop a national archive (p.71).**Edmund Burke** places an importance on knowing the history of one's own nation-state (p.72).
 - Philosophy becomes very important to history during this time period due to it's realization that change occurs over time (p74).
