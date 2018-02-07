@@ -20,6 +20,6 @@ Thomas Gil, “Leopold Ranke,” p. 383-392
 
 * New technologies and innovations, such as photography and museums, made history all the more accessible to non-historians. As for historians, their discipline was expanding thanks to institutions such as the American Historical Association (Popkin, p. 91-94).
 
-
+10: i resent having to give a 10 so early in the semester, but i can't see how to improve this. very nice.
 
 
