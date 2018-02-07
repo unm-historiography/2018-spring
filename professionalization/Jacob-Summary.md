@@ -7,11 +7,11 @@
 •	In the appearance of enlightenment rationalism, a conflict sprouted between romantic and rational analysis. Historians struggled over histories purpose in its approach to creative culture. *Rationalists would succeed in methodology while the romantics would succeed in extending public interest in the past.* (P.75)
   >This theme Harkins back to our discussions on historical fiction in popular culture.
 
-•	Renke provided a radically new approach in the historical research. His methodology was created in the search for a scientific historical method. The approach was to present the past to public emphasizing states vast influence over the human narrative. His research also gave birth to source interpretation and footnotes as skeleton for the historian’s narrative. (P.78.Gil)
+•	~~Renke~~ Ranke provided a radically new approach in the historical research. His methodology was created in the search for a scientific historical method. The approach was to present the past to public emphasizing states vast influence over the human narrative. His research also gave birth to source interpretation and footnotes as skeleton for the historian’s narrative. (P.78.Gil)
 
   >**The search for objective knowledge is not the same as a natural science; no natural laws are being created from historical research.**    (P.86)
 
-•	 The scientific approach developed by Renke brought about the peer review. Historical peer review aided in the legitimization of historic professionalization.(P.80)
+•	 The scientific approach developed by ~~Renke~~ Ranke brought about the peer review. Historical peer review aided in the legitimization of historic professionalization.(P.80)
 
 •	The professionalization of history allowed for the development of specializations within the field. *Cultural examination from gender to economics of the past aided in the development of other social sciences revolving around the past as a predictor of the present.* Marx arose as prime example examining the social conflict he described as an ever-present struggle between classes. (P. 90)
 
