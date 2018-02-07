@@ -1,4 +1,4 @@
-                                                 **19th Century History Questions**
+**19th Century History Questions**
 
 -In the 19th century, nationalist philosophies blossomed across Europe and the rest of the world. Popkin explained that historians began to cover history through the “the story of nation-states” as they played a **“major role”** in the spread of nationalist ideologies (Popkin, P. 70). In McNeill’s reading on mythistory, McNeill expressed concern about covering national identity in an “us versus them” mindset lead to conflict. He stated that it is the “moral duty” of historians to de-escalate tensions between rival or opposing groups (McNeill, p. 7). **Do 19th century historians deserve any blame** for nation-state conflicts such as the Napoleonic Wars (1802-1813), the Opium Wars in China (1839-1840, 1856-1860), Spanish-American War (1898) and other 19th century nation-state conflicts? Are 19th century historians slightly, largely or not at all responsible for heightened nationalist tensions entering the 20th century?
 
