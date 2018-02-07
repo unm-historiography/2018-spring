@@ -12,3 +12,5 @@
   4. Believes in a **divine association in relation to world history** (Gil, 388).
   5. Focuses on the **uniqeness of each era** (Gil, 391).
   6. Focuses on **original documents**, made **facts a priority**, believed in the **centrality of politics within history**, and believes **each era is unique in it's historical phenomena** (Gil, 384).
+
+7: excellent condensation of Ranke's contributions. other bullet points are **too compressed**; that is, they don't explain terms or important ideas very well ("larger scale", "focus on change", "philosophy becomes very important", etc). Also, explain the significance of your bullet more as well (for instance: why was a focus on nation-states important?)
