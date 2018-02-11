@@ -8,7 +8,7 @@
 
 * Post-World War I challenges included history being objective. Most historians wrote history with a bias to support causes *they believed in personally*. Popkin gives the example of the Russian Revolution in 1917 and the utilization of Marxist principles in history being used to "combat 'bourgeois' critics" (Popkin, p. 109). 
 
-* By the end of the first world war, an "Annales" schools developed in France. It was a scholarly movement founded by Marc Bloch and Lucein Fabvre, who wanted to be liberated from the "nationalist framework" that had plagued historical writing (Popkin, p. 111).
+* By the end of the first world war, "*Annales*" schools developed in France. It was a scholarly movement founded by Marc Bloch and Lucein Fabvre, who wanted to be liberated from the "**nationalist framework**" that had plagued historical writing (Popkin, p. 111).
 
 * These *Annales* scholars also encouraged historians to *utilize different sources* for their history and to stray from the Rankean tradition of history from the elites and written records. They used past historical records and physical artifacts to show how the poor and illiterate lived. (Popkin, p. 112). 
 
