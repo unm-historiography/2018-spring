@@ -19,4 +19,4 @@
 
 7. **What can be said of Orwell’s allusion that freedom and democracy are inexorably linked to freedom and democracy** (Popkin p. 113)?
 
-
+9: very nice. some questions (4, 7) are too vague, esp compared to your others. Provide some context (besides the citation) and make a start to answer the question given what we've read so far.
