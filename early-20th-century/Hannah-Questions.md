@@ -7,3 +7,5 @@
 - American historian James Harvey Robinson, argues that *"students needed to learn not obscure fact but rather the processes that that had created the world"*(p.105). Do you agree with Robinson that the process it more important for a historian to learn or do facts play a vital role in history? **Can history be true without focusing on facts?**
 
 - E.H. Carr wrote that readers of history should first **"study the historian before you study the facts"**(p.122). Do you agree with Carr, and do you research the author before you read a historical book or article? Does it take away form the conclusions or argument if the historian has some **bias**, if the reader is aware of it? 
+
+7: All your questions follow the same model, which is to pick out a quote or idea and then ask if it applies to modern historical work. It's good to have a few questions like that, but be you're using the questions to show that you are carefully analyzing the reading on its own terms, and balancing it against previous readings. Also, remember to provide a start to an answer in your questions to help jump start our discussion of them.
