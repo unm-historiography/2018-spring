@@ -8,7 +8,7 @@
 
 •	While 20th century historians grew in number and popularity, various factions and viewpoints formed on the study of history. In the United States, historians debated how to assess the historical treatment of African Americans. D.W. Griffith introduced his racist work “The Birth of a Nation” with much approval from President Wilson (p. 105). African American historians offered rebuttals with works such as Journal of Negro History by Carter Woodson (p. 108). 
 
-•	In the aftermath of World War I, the enlighten view of history was “shattered” (P. 106). Mainstream historians no longer saw the history of humanity as a story of progress and improvement. Some historians such as Oswald Spengler even saw the unsatisfactory end of the war as evidence of the decline of western civilization. 
+•	In the aftermath of World War I, **the enlighten view of history was “shattered”** (P. 106). Mainstream historians no longer saw the history of humanity as a story of progress and improvement. Some historians such as Oswald Spengler even saw the unsatisfactory end of the war as evidence of the decline of western civilization. 
 
 •	Even though various 20th century historians challenged Ranke’s view of “objective history,” George Orwell completed his works “in defense of historical truths” (p. 113). While countries such as Germany and the Soviet Union distorted truth and manipulated history to bolster their regimes through “propaganda,” Orwell’s fictional novels gave his readers insights into the corrupt, intrusive and tyranny of totalitarian governments. 
 
