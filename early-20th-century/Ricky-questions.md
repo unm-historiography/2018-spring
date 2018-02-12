@@ -13,3 +13,5 @@
 - Do you think that oral history can be trusted to conduct historical work? Historian Jan Vansina believes that oral histories “are not just a source about the past, but a historiology of the past, an account of how people interpreted it” (p. 121). When saying oral history is an interpretation of the past, could one say the same about written history? **How much is trust in these sources a cornerstone of history?**
 
 - In the 20th century Western World, history was often put in a lens of constant development, where we march forward to a better future while letting curel events of the past fade away (p. 120). Did this contribute to the marginalization of African Americans in the United States in the later 20th century? Can you think of anything else that falls under this idea?
+
+8: I like where you're going with these, but these questions generally veer too far into speculation or very broad opinion questions that we're not really prepared to answer yet. The easy fix is to more explicitly tie them into the present and past readings to suggest how we should approach answering the questions given what we've read so far.
