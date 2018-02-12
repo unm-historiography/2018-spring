@@ -4,7 +4,7 @@
 
 - The _Annales_ great work of accomplishment was _The Mediterranean and the Mediterranean World in the Age of King Phillip II_ (Erikson p. 87). **Though some regarded the ‘total history’ as a progressive step in the evolution of historiography, others critiqued it, citing the impossibility of a truly ‘complete’ history**, and noting elements that were overlooked, such as cultural, religious, and agrarian topics, as well as law (Erikson p. 90).
 
-Stemming from the desire to break from nationalistic, politically-motivated history, The _Annales_ School sought to focus on the lower-classes of the state. _A break from strict scientific method and rigidity allowed historians in the school of thought to explore different perspective and alternative approaches to historiography_ (Popkin pp. 110-112).
+- Stemming from the desire to break from nationalistic, politically-motivated history, The _Annales_ School sought to focus on the lower-classes of the state. _A break from strict scientific method and rigidity allowed historians in the school of thought to explore different perspective and alternative approaches to historiography_ (Popkin pp. 110-112).
 
 - Within the _Annales_ group, a more quantitative and focused directive arose, looking to solve the problems of history (Erikson p. 91). At the time, critics accused these historians of only analyzing that which can be counted. Later, groups developed which looked more closely at the qualitative social workings of people in history (Erikson p. 92). In many respects, **such a divide persists today, in many disciplines of humanities and social sciences** (Erikson p. 93).
 
