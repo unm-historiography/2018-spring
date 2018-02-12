@@ -1,4 +1,4 @@
-**History in Early 20th Century**
+**History in the Early 20th Century**
 
 •	“In 1884, the four hundred colleges and universities in the United States employed only twenty full-time history professors” (p. 97). After the passage of the GI Bill in 1944, universities across the country were hiring history professors at a rapid rate (p. 114). Instead of an elite social class being the primary consumer of history, the GI Bill led towards a far greater and more economically diverse college enrollment. The popularity of the history ballooned in the early 20th century. 
 
