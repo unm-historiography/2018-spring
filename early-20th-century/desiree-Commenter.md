@@ -11,7 +11,7 @@ It could be understood without recognition that even in the 21st century these m
 
 Therefore, I ask, when is it too early to introduce various methodologies into academia? Do we target certain histories first in order to justify current politics and economies? It is important for every person to understand the basics to the past, its linear and historical value. But if we introduce this methodology from a young age and enforce this thinking, are we (American academia) grooming nationalism? 
 
-
+9: very interesting! i want you to formulate this more as a particular argument rather than a question. for instance: "our modern historical training in academic continues to enforce Nietzsche's tripartite division of history and grooms nationalism in the way that early 20th century historians did--a practice that was rejected by historians in the aftermath of the wars." It's fine to leave some broad questions at the end (when is it too early....?), but make sure you've made an argument for your point first.
 
 
  
