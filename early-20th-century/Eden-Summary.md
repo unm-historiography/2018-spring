@@ -14,5 +14,5 @@
 
 * World War II led to an increase in interest in history in the allied countries, and an increase in historical truth *in defense of freedom*. It also increased the prestige of all sciences, including the "social sciences," from psychology to sociology and history. The specialists in these fields were called to explain the societies involved and plan postwar reconstruction (Popkin, p. 114). 
 
-
+7: no summary points for last 10 pages? Also, pages 100-105 suggests very new roles for historians in creating the past, continuing the developments from last chapter. You've highlighted good points, but left out too many significant changes.
 
