@@ -7,5 +7,4 @@ The most obvious example of such biases in autobiographies are those written fro
 
 In the 20th Century, both Winston Churchill and Charles de Gaulle wrote about their personal accounts during the Second World War. (Popkin 113) These memoirs may no doubt be inspiring, they only provide a single perspective and only one side of the story. Since the Allies won World War 2, and history is written by the victors, how can these sources be truly reliable and be accurately assessed by historians? 
 
-If autobiographies and first person testimony offers , historians must be careful when using these types of sources. If not careful,  accuracy of history is concerned,
-
+If autobiographies and first person testimony offers invaluable accounts to history, it shouldn't be the sole source of information. Historians must consider the author's motive before using their sources. E.H. Carr said it best by saying, "study the historians before you study the facts." (Popkin p. 122)
