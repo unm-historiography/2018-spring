@@ -16,6 +16,10 @@
 
 - Film in particular could be criticized for their nature to skew historical events and often portray the lives of non-white characters as meaningless. African-American authors, historians, and scholars directly protested these biased interpretations of history. **(pg. 105, 108)**
 - The World I had a significant impact on historians. Patriotism for one's own country affected historical writing with a theme of "us versus them". Later devastation of human life on an unprecedented scale shattered the previous views of human progress and historians again questioned the value of their works and study. Was human reason flawed? **(pg. 105, 106)**
- - World War II instead had some historians conforming to the values of oppressive governments, re-writing history to conform to national standards. The United States became a safe haven for Jewish scholars fleeing Nazi Germany began to write of the horrors of the holocaust in an effort to make sure history was not forgotten. **(pg 110).**
+
+ - World War II instead had some historians in Germany and Russia conformed to the values of oppressive governments, re-writing history to reflect national standards. The United States became a safe haven for Jewish scholars fleeing Nazi Germany who began to write of the horrors of the holocaust in an effort to make sure history was not forgotten. The value of historical honesty was reaffirmed to counteract dangerous Wartime propaganda and re-writes of history. **(pg 110, 113).**
+
+- **Marc Bloch and Lucien Febvre** founded the **Annales** school of history in 1929 and became an inspiration for professional historians. The focus was to move away from excessive political history and instead emphasize social, cultural, and economic history. The school took influence from other disciplines like sociology, psychology, linguistics, etc.. to offer "total history" and a "fresh approaches to the study of the past". Historians could take away knowledge from multiple sources and aspects of human existence and avoid rigid ideologies. **(pg. 111-112)**
+
 
 9: great, except no mention of the Annales school, which was a continued theme throughout the chapter and a hugely important historiographyical development. You focused a bit more on the popularization of history, which you've covered very well.
