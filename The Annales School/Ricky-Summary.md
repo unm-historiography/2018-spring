@@ -1,5 +1,5 @@
-# The Annales School
-## Summary
+## The Annales School
+### Summary
 
 - *The Annales* school of thought branched away from the stringent rules of the Scientism theories of Ranke. In this effort, they intended to break from political and diplomatic topics. (Erikson p. 87). This is seen in the *Annales* founders works, Lucien Febvre’s thesis on Phillippe II included geographical data and how that shaped social and cultural aspects of his life (p. 88). 
 
