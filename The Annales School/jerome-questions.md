@@ -1,7 +1,7 @@
 ### Annales Questions
 Jerome T. Mondragon
 
-1. Fernand Braudel has been heavily criticized for _The Mediterranian_ because of it's lack of people, religion, and culture within the work. Because of its heavy emphasis on geography, could his work be considered as history?
+1. Fernand Braudel has been heavily criticized for _The Mediterranian_ because of it's lack of people, religion, and culture within the work. (Green and Troup, p. 90) Because of its heavy emphasis on geography, could his work be considered as history?
 
 2. Braudel describes the layers of historical time which includes geographical time, economic cycles, and politcal history. (Green and Troup, p. 89) How can these layers be used to create new historical topics or literature?
 
