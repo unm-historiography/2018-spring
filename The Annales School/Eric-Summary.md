@@ -4,3 +4,5 @@
 - Annales shool historians shift their focus in the 1970's to the study of what they refer to as _mentalites_ This study approach focuses on examining and explaining the daily experience and viewpoints of ordinary individuals in order to shape the inner workings of the societies these people lived in. (p.92)
 - The Annales school has received criticisms for it's lack of highlighting the role of gender in much of it's studies. Attempts have been made to correct this oversight, but more remains to be done to correct this. (p.93)
 - The overall legacy of the Annales school is the search for underlying structures through various groundbreaking methodolofical approaches in an attempt to tell a more complete and accurate history. (p.94)
+
+6: all good points, but much is missing, such as ideas about total history, quantitative history, anyone beside Braudel, and any attempt to tie in the excerpt from Braudel and how it represents (or not) his goals. 
