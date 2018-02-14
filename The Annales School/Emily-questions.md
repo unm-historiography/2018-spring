@@ -1,0 +1,7 @@
+### The Houses of History
+#### 87 - 109 
+- Are Braudel’s three layers of historical time still relevant today (Green and Troup, pg. 89)? Or can we frame history in a different context?
+- Is *histoire totale* a more effective way of conveying history, or is the more specialized *histoire probleme* the best way to tell the story behind why historical events happen (Green and Troup, pg. 91)?
+- While *Annales* historians tried to see the larger underlying structures, and give a more *histoire totale*, they still ignored women (Green and Troup, pg. 93). How can this be considered a *histoire totale* if half of the main players are excluded from the start? 
+- Braundel's change in methodology about perceiving at historical events, including a large emphasis on the geography of the region, would change the way that historians would create history after that (Green and Troup pg. 98). Geographic history is now one of the norms of the historical world. Why was this such a radical notion? Did this change effect the objectivity of history in the way that the *Annales* school wanted it to? 
+- *The Mediterranean* was an incredibly influential work, one of the first modern works to try and create *histoire totale*, while also looking at history in a different way. But, there was also a lot of criticisms of Braudel's work, saying that it lacked enough information to be considered a total history (Green and Troup, pg. 90). What is the value of Braudel's work if it is not simply in the history he is examining? 
