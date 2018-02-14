@@ -10,6 +10,6 @@ Desiree' Martinez
 
 - Green and Troup state," A social and cultural barrier is raised to replace the imperfect geographical barrier which is always being broken in a variety of ways."(p. 108) Overcoming disparities seem to be a common thread in histories, the *Us vs. Them*, Men vs. Woman. Have _Annales_ aided in breaking down these barriers or are we still stuggling to execute _Annal_ philosophies given our current political and social context? As globalization continues to infiltrate the "mountains and lowlands" can "barriers" truly be overcome?
 
-
+9: all good questions but all kind of ask the same thing: is Annales thinking still useful? 
 
  
