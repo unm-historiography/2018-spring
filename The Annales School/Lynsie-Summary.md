@@ -16,3 +16,5 @@
 1. The **mountain ranges of the Mediterranean were lush with natural resources**, such as various types trees, dairy, meat, and minerals. While these raw materials varied by region, the advantages of the mountains were not meager (p. 102-104). **"Life there is possible, but not easy"**. Braudel describes in detail the various ecological advantages the mountains had but also detailed the hard labor required to utilize them (p. 104).
 
 1. **The social and cultural barrier between mountain dwellers and townspeople echoes the geographic boundary between the two groups** (p 108). Townspeople quickly found themselves superior to the mountain dwellers who come to live in the town and caused a divide between the two. Rarely did these two groups intermarry due to the prejudice against the mountain dwellers, despite their contributions to the lowland towns (p. 108-109).
+
+10: excellent; was hoping for a more explicit summary point on the relationship b/w the Braudel excerpt and his goals as laid out in the introductory section.
