@@ -13,3 +13,5 @@
 - **Geography is central to the formation and reach of political order and, therefore, understanding of geography is essentially for the writing of ‘good’ history.** _The Annals School_ was notably recognized for its focus on this aspect of history (Erikson pp. 88-90). In _The Mediterranean_, these assertions are made clear through analysis of mountains and the role they play determining the freedom of people – a product of geographical division (Braudel pp. 98-99).
 
 - _The Mediterranean_ focuses on a multitude of geographic attributes that contribute to the differences in historic political structure. Whether the mountains (Braudel pp. 98-108) or the forests (Braudel pp. 103-104), **to better understand the dynamics of people, history can and should be viewed through various lenses – geography being one.**
+
+8.5: concepts of historical time? mentalité approaches? Erikson?
