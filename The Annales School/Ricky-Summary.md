@@ -12,3 +12,5 @@
 - The inability for the *Annales* to create a meta-narrative for historical change has been a thorn in their methods (p. 93). This factors in to the inability to apply the *Annales* methods to the present. While the use of geography works aptly to mountain people in the age of Phillip II, **it could not apply to the modern world**, where these geographical features make a much *smaller impact* on people’s lives. 
 
 - A natural evolution of the Annales led to the focus on **mentalites**, the study of common lives and how they shape their society (p. 92). This aimed to *fix* the ever-present argument of objectivity in history. While not exactly a new thought, **the application of this opened up an incredible amount of source material to a historian**. Mentalites links back to “total history”, yet further aligned the ideals of the Annales with modern day historiographical methods. 
+
+8: summary Braudel excerpt? careful of broad and unsupported claims: what source material was opened up? why is geography less important now? why was total history impossible?
