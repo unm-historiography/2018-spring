@@ -1,4 +1,4 @@
-### Marxism Comment
+### Marxism as Revolutionary
 Jerome T. Mondragon
 
 The ideas of Marx is a revolutionary concept which could not exit at any other time period. Socialism can't materialize without the conditions of the Industrial Revolution such as technological advancements, greater division amoung the classes, terrible working conditions, and the consciousnous of the working class. As E.P. Thompson points out, "The physical instruments of production were seen as giving rise in a direct and more-or-less compulsive way to new social relationships, institutions, and cultural modes." (Thompson p. 46)
