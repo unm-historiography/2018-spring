@@ -1,4 +1,4 @@
-### Marx's Role in the Evolution of Historiography
+### Marx's Role in the _Evolution_ of Historiography
 
 Despite the staunch position of Engels and many Marxists like him, **the historiographic work of Marx himself was _not_ revolutionary**, but rather a reasonable and organic evolution in the field. The work of Marx was, in many ways, reactionary to the focus on history from the perspective on the bourgeoisie (Popkin p. 88; Rockmore pp. 488-89). While the socialist philosopher brought methodology and focus to a new field of history, _the reactionary element in itself discredits the notion of revolutionary_, rather than evolutionary. Marx’s contributions, though quite different than his predecessors, were a development and new take on what had been produced before. Before him, Ranke focused on political historiography (Popkin p. 79); Marx found his niche in social and economic determinism, while Braudel of the Annales School was focused on geography (Green/Troup p. 90).
 
