@@ -13,5 +13,5 @@ Capitalism also created larger divisions amoung classes. Employers rule as monar
 
 Despite these vast inequalities and horid working conditions, it is necessary to initiate the final stage Socialism. The masses must be awakened from their current status and conditions to eventually seize control of the economic process. Only then conditions of life be improved and can true freedom be obtained. (Rockmore 492-493)
 
-
+8: the second half of your comment is mostly summary, which should be exchanged for continuing the argument present in the first 3 paragraphs, and thus give you space to provide more historical detail. or at least you should more clearly relate your summary comments to your arugment that marx is a revolutionary thinker. you have a great set up in showing that Marxism is very time specific and couldn't have emerged before, which you could develop even further.
 
