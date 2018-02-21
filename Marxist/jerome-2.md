@@ -11,7 +11,7 @@ In E.P. Thompson's _Exploitation_, The rise of the Capitalist stage is attribute
 
 Capitalism also created larger divisions amoung classes. Employers rule as monarchs by profiting from workers' labor, keeping their pay low, and keeping their moral non-existant. An economic system is in place in which the worker can't escape. An employee must retain his job in order to obtain repeoductive needs which inludes food, clothing, and shelter. (Rockmore 490) They can't quit because they'll gain a bad reputation and won't be rehired. (Thompson p. 54) The employee must ultimately submit to his employer's bidding.  
 
-Despite these vast inequalities and horid working conditions, it's necessary to initiate the final stage Socialism. The masses must be awakened from their current status and conditions to eventually seize control of the economic process. Only then conditions of life be improved and can true freedom be obtained. (Rockmore 492-493)
+Despite these vast inequalities and horid working conditions, it is necessary to initiate the final stage Socialism. The masses must be awakened from their current status and conditions to eventually seize control of the economic process. Only then conditions of life be improved and can true freedom be obtained. (Rockmore 492-493)
 
 
 
