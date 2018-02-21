@@ -1,6 +1,6 @@
-**History and Sociology**
+# **History and Sociology**
 
-**_Houses_**, Sociology, pgs. 110-140
+## **_Houses_**, Sociology, pgs. 110-140
 
 **Sociology** and **history** both critically look at particular social structures and patterns of change and are often considered interrelated, yet they differ in core initiatives and must be distinguished and analyzed separately. History primarily deals with records and narratives derived from those records, while historical sociology is the discipline which is primarily concerned with the study of social phenomena and social processes of the past. Sociologist **Talcott Parsons** focused on structural functionalism of society and expressed that society was a cohesive function of various elements that structured a social system and charted their interaction.(Green and Troup, p. 112) History, according to **_Leopold von Ranke_** did not focus on the interactivity of society, but focused on the evolutionary methods such as objectivity of historical truth, the priority of facts over concepts, the uniqueness of all historical events, and the centrality of politics within history.(Gil, pgs. 384-385) Parsons also emphasized that historical change occurred when solutions to functional problems within a system moved to a higher level of social organization.(Green and Troup, p. 116) This notion centralized the growth of modernity, rather than historical approaches to understand the past as equally as important. Despite failings of particular leaders and civilizations in the past, history often concludes that all historical facts and concepts may not necessarily connect, but are equally as important as social processes and the historical "road" to modernity. 
 
