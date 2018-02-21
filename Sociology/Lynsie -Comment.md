@@ -1,6 +1,5 @@
 ## Sociology versus History
 #### Houses of History p. 110-140
-#### Lynsie Hojnowski
 ---
 
 Sociology and history have fundamental differences in academic fields. **While historians and sociologists' research can overlap, they approach them with different goals making a seamless integration of the two disciplines challenging.** Auguste Compte coined the phrase 'sociology' and followed an inductive method developing **"general theories from empirical data"** and examining social systems and how they work (_Houses of History_ p. 111). This emphasis on general theories contrasts from historians research,  as Ranke famously stated, which is **"to show what actually happened"** (Popkin, p. 76). Historians' motivations and how they approach history can differ, but their overarching goal is to describe the past and explain why it is valuable. Many historians, such as Ranke, Le Roy Ladurie, Bloch, and Marx, value different historical epochs and "common history" as unique (_Houses_, p. 35, 92; Popkin p. 112; Gil, p. 384). The value of this specific history becomes lost in sociology because the goal is a generalization.
