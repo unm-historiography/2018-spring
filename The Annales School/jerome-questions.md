@@ -11,3 +11,4 @@ Jerome T. Mondragon
 
 5. In Braudel's _The Mediterranean_, his placements of events seem to be completely sporatic.  (Green and Troup, p. 98-109) Does contemporary historical work, or historical work in general, need to be written in chronological model? Does his work have a claim? Does it needs one?
 
+8: good introductions to questions, and have a nice balance of particular and general concerns. room for improvement: provide a beginning of an answer to your questions in terms of how you would answer it. 
