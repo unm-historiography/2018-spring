@@ -7,7 +7,7 @@ One's economic status both creates our **present history** and our **past histor
 
 Renaissance humanism falls in favor of Marxism as it places emphasis on the human part of history. The humanist movement in medieval Europe rose from religious oppression and growing secularization. This was one of the first huge revolutions in favor of the individual. While Marx's view of history focuses on human awareness, the individual is not forsaken from the whole. This proves the uniqueness of Marxism and the importance of our individual role within society. History is not only made by men, it is ever-revolving as we create new ways of influencing not only the present, but the future as well. 
 
-
+8: i had a hard time following a coherent thread throughout the comment. all good ideas but make sure you have transitions that connect them.
 
 
 
