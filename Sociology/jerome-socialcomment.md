@@ -11,4 +11,5 @@ A specific example of how history and sociology can't be fused together is from 
  
 While sociologists can't be historians, historians can't be sociologists either. Historians have a difficult task in creating work that is informative yet engaging. If their work is analytical and scientific, like sociology's work, it'll be too dry to read. Historians may also have an unintential bias, which is also reflecting in their writing. (Popkin p. 4-5) While it's possible to include factors within each subject matter, it's difficult to merge these differing subjects into a single topic. 
 
+9.5: this is really great, but i wanted you to draw much more from past readings (so you can't get a 10), but this is such a nice argument about the key differences that a 9 seemed too low. as most people argued for the compatibility of the two fields, you should have spoken up more in class!
 
