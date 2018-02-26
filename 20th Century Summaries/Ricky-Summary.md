@@ -6,7 +6,7 @@
 
 - The invention and innovation of computers allowed for larger and more precise quantitative work in history to occur in the later 20th century (p. 131). Coupled with an emphasis on statistics, historical work based on large-scale economic data known as “cliometrics” came into use. While quantitative history had its role in studying basic data in life, it had shortcomings in the **personal and social experience of the world**, it could not analyze data that could not be sorted. 
 
-- A massive shift in historiographical work came about as a result of the *linguistic turn* (p. 135). To emphasize the importance of narrative in history and how historians shape these **visions of history* is topic of major importance in an age where historical methods quick to contradict one another. 
+- A massive shift in historiographical work came about as a result of the *linguistic turn* (p. 135). To emphasize the importance of narrative in history and how historians shape these **visions of history** is topic of major importance in an age where historical methods quick to contradict one another. 
 
 - The massive amount of differentiating historical methodology and **ideals coming from the later 20th century naturally encouraged division among historians**. These “history wars”, which not only included arguments about methods, but also of the truth in the past itself made the whole subject of history a hot topic (p. 158, 162). The interpretation of past wars in the United States sparked a large political debate, with politicians claiming political correctness, and academic historians asserting the *truest* past (p. 160). 
 
