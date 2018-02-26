@@ -1,5 +1,6 @@
 Week 7
 Herodotus to H-Net Summary 
+
 •	War, Inequality, and a faltering economy; elements in the changing world that drove an extreme counter movement to the status quo. *By the late sixties university students demanded classes that would be more relevant to their lives.* Historians moved to represent these trends searching for new methods in which to understand the difficult global cultural of conflict. **Historians began pursuing a collective peoples history focused on telling the history of marginalized cultures.** (p.127-9)
 
 •	*“Paradigm Shift”* was used to describe the intense academic upheaval of the traditional historical norm. Thomas Kuhn’s belief that **historic scholarship represented the present beliefs of historians rather than built from a collective basis of past professional works.** Historians attempted to bring new academic tools from social/scientific fields to further their own work *changing the examination of the past to fit current social dynamics, making history more relative to modern movements.* (P.130-4)
