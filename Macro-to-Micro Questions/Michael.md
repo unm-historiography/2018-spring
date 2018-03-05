@@ -2,7 +2,7 @@
 
 -	**Harmony can, in theory, exist between “broad social transformations” and those of “individual existence”** (Iggers p. 104). However, when evaluating microhistory versus macrohistory, is there more value to be found in one over the other? Does one contribute to our understanding of history more?
 
-- How would ancient historians like Herodotus and Thucydides view the relationship between micro and macro history? How does this compare to later historians such as Ranke or Marx? **Would or should one expect a difference in opinion based on time-period of the historian or place of origin (e.g. Italian vs. German approaches)?** (Iggers p. 105).
+- How would ancient historians like Herodotus and Thucydides view the relationship between micro and macro history? How does this compare to later historians such as Ranke or Marx? **Would or should one expect a difference in opinion based on time-period of the historian or place of origin (e.g. Italian vs. German approaches)** (Iggers p. 105)?
 
 -	Marxist history has fluctuated in popularity over the last century (Iggers p. 102). Though taking on a historical analysis of the social classes and the common people was meant to bring the disenfranchised to the forefront of history, what can be said of the author’s claim that **Marxists and other social historians, like _Annalist_ Braudel, still did not achieve a historical narrative that assigned individuals “a human face”** (Iggers p. 107)?
 
