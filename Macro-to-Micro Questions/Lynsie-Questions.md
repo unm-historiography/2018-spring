@@ -8,6 +8,6 @@ Macro/Micro History Questions
 
 - Both **anthropology and sociology** are concerned with understanding social structures and human behavior (_Houses_, p 111, 174). The study of social anthropology founded in England was profoundly influenced by Émile Durkheim, a key figure in sociology (_Houses_, p 173). **How do social anthropology, and historical sociology differ?** Should we consider them to be separate?
 
-- How useful are ethnohistory and the methods they use, such as **"thick description"**, invented by Clifford Geertz, to the disciple of history (_Houses_, p 177)? Is there a line between symbolic interpretation and fiction? If so, how and where do we draw that line?
+- How useful are ethnohistory and the methods they use, such as **"thick description"**, invented by Clifford Geertz, to the discipline of history (_Houses_, p 177)? Is there a line between symbolic interpretation and fiction? If so, how and where do we draw that line?
 
 1
