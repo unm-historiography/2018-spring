@@ -12,3 +12,5 @@ Desiree' Martinez
 4. Popkin mentions the idea of _controlled speculation_. "Where the **evidence is inadequate**, researchers employ '**comparative material** from other cultural or historical situations to **infer crucial information** that may be missing or obscured in the historical record of a particular situation'." (Houses, p.179) Thus, deducing that historians may be **reluctant to embrace** this method though it has yielded success. Therefore, is historical research bound to quantitative analysis and will history/anthropology ever achieve total **"emic"** understanding?
 
 5. According to Emile Durkheim, "the study of the **social group or community** took **precedence** over the **individual**." Furthermore he infers, "social cohesion of any society is **achieved through** communal rituals and ceremonies, and these therefore **fulfil important functions** in that **society**." (Houses, p.173) Thus, as globalization continues to accelerate will the **functionalist** approach **cease in the visibility** of "rituals" as being a **intrical part of society** as things become more homogenized?
+
+1
