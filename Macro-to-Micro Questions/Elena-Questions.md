@@ -13,3 +13,5 @@ George Iggers, “From Macro- to Microhistory: The History of Everyday Life,” 
 4. Ethnohistory combines the fields of **anthropology, archaeology, ethnology, history, and linguistics, and utilizes a variety of sources**: from oral traditions to artifacts to written sources (*Houses*, p. 175). Would you say that the development of ethnohistory in the 1950s served as a predecessor to the dramatic “paradigm shift” that history experienced in the second half of the twentieth century (Popkin, p. 134-135)?
 
 5. American ethnohistory faces an **“enduring problem of perspective”** when it comes to the Native American narrative (*Houses*, p. 176-177). Setting aside the problems that come with the lack of “first-hand accounts” from the indigenous peoples of North America, **would there still be a disparity** between how “insiders” and “outsiders” choose to depict Native American history (*Houses*, p. 176-177)?
+
+1
