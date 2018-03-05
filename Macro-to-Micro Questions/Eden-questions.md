@@ -8,3 +8,5 @@ Moving from the dusty shelves of the elites to the daily struggle of the **avera
 3. Alternatively, are microhistories *too* specific in their interpretations? If the point of history is *telling a narrative*, do microhistories provide *too* much detail?
 
 4. Geertz believes "the goal [of anthropology] is to get beneath surface behavior to reach an emic ('insiders') understanding, ...subject to their experience" (Green & Troup, p. 177). How can "scratching beneath the surface" be useful in our reconstruction of history and further our understanding of the past? 
+
+3
