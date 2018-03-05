@@ -8,6 +8,6 @@
 
 5.	At what point can history just be fun? When can we freely learn about the personalities and hilarious anecdotes without incurring the wrath of academia? **Does Isolating small historical anecdotes actually trivialize history like Kocka suggests** (Iggers.P.3)? *Or does it simlpy provide multifacited approaches to historical study?*
 
-
+2
 
 
