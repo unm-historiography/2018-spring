@@ -15,3 +15,5 @@
 7.	The study of ethnohistory can often be defined as the study of ethnic groups (Green, p. 203). McNeill explained that it is the “moral duty” of historians to promote unity and alleviate tensions among opposing groups (McNeill, p. 7). Similarly, to how some individuals would blame nationalist historians for promoting differences that led to conflicts among nations, are ethnohistorians at fault when they create history that outlines the differences among various ethnic groups?
 
 8.	Green states that ethnohistory’s **“findings of historical research have profound material and political implications”** (Green, p. 206). The ethnohistorian James Axtell tried **“to bring the Indian into focus”** in his works to provide an indigenous perspective of white settlers in the early colonial period. Could ethnohistory reshape how history views politics in a similar fashion to how Marxist history impacted social history? (Green, p. 47)
+
+1
