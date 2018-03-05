@@ -13,3 +13,4 @@
 
 - Does history **require** the study of individuals (Iggers, p. 107)? *Microstoria* contains the belief that history should concern itself less with generalizations and social science *theories* and hone in on concrete experiences of human beings (Iggers, p. 114). Yet history thrived for decades in an environment where this concrete proof was almost unnecessary, which emphasizes the question, **is it necessary**?
 
+2
