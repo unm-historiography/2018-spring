@@ -10,3 +10,5 @@
 
 5. **Ethnohistory** began making strides to include **"the people without history"** into a historical framework that challenged Eurocentric concepts by combining the fields of anthropology, archeology, linguistics, and re-examining oral traditions allowing for alternative viewpoints. Despite these improvements, how might Ethnohistorians **not be truly** representing the voice of say Native American cultures? Think back to the example of the **"winter that the stars fell".** Would the historical works of a white European or American scholar be different in focus compared to a historian with Native American ancestry? How might a female ethnohistorian's work differ from that of a male ethnohistorian? (Houses, pg. 176-177, 179)
 6. Can you explain the approach pioneered by **Clifford Geertz** known as **"thick description"**? Can historians be objective while also reconstructing multiple meanings/interpretations of historical acts and the individuals involved? What was the possible meaning behind the disgusting acts described in **Robert Darnton's** work, *The Great Cat Massacre*? (Houses. pg. 177, 178) (Iggers pg. 104, 116)
+
+1
