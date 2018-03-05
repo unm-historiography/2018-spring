@@ -4,7 +4,7 @@
 
 3.	Ginzburg and Poni were proponants of micro history, using social sciences basic assumptions borrowing from marxist and sociologist schools they narrowed history to view the "little people" and the forces that shaped their lives (Iggers.P.2) **Do the actions of individuals in their societies offer a more definitive look at history rather a macro level analysis of a whole society**? Can we learn more just by isolating a member regardless of class and analyzing their interactions? *Does this approach have to fall into another academic school rather than history, does social model analyzing have to be categorized as a sociological or anthropological perspective?*
 
-4.Anthropologists tend to focus on physical archeological research, while historians focus on written record. How much extra scrutiny should historical scholarship be treated with if it draws heavily on archeological evidence. Is it a historians place to interpret such data?
+4.  Anthropologists tend to focus on physical archeological research, while historians focus on written record. How much extra scrutiny should historical scholarship be treated with if it draws heavily on archeological evidence. Is it a historians place to interpret such data?
 
 5.	At what point can history just be fun? When can we freely learn about the personalities and hilarious anecdotes without incurring the wrath of academia? **Does Isolating small historical anecdotes actually trivialize history like Kocka suggests** (Iggers.P.3)? *Or does it simlpy provide multifacited approaches to historical study?*
 
