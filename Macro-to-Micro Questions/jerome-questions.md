@@ -11,5 +11,5 @@ Jerome T. Mondragon
 
 5. In the _Yucate Maya Women_, Inga Clendinnen draws upon Spanish sources to understand the Mayan women. Since the sources are exclusively male, how much of an accurate portrayal can we get of the society we're trying to interpret? (Clendinnen 184-83)
   
-
+3
 
