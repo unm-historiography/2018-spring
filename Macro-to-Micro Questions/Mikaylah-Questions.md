@@ -6,3 +6,5 @@
 5. Edward Sapir argues that the **relationship between people and culture is circular** (p.4640).That is, people create culture and in turn culture affects individuals. Does this convince you that culture plays the most important role in historical narratives?
 6. Through a **functionalist approach**, all aspects of society are intertwined (p.4653). Does this mean that society should be studied as a whole? If so, what becomes of the 'individual'?
 7. **Ethnohistory** is defined as a mix between history and anthropology, yet is not specifically defined as a discipline, process, or methodology (p.4715). Is it safe to call ethnohistory a methodology given its distinct method of focusing on cultural interactions?  
+
+1.5
