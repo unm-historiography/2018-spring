@@ -9,3 +9,5 @@
 -	**Anthropological historians favor microhistory, focusing on “small communities, single events or even on individual under minute scrutiny”** (Green/Troup p. 174). Do you agree with the authors’ observation? Does this statement become truer depending on the school of anthropology being studied (Green/Troup pp. 172-173).
 
 -	How do ethnohistorians compare to social and Marxist historians, particularly in the context of distinguishing indigenous peoples and “hearing their voices” in modernizing societies and in the historical record (Green/Troup pp. 176-177)? What might be a common or conflicting agenda behind social and ethnohistorians’ presentation of indigenous peoples?
+
+2.5
