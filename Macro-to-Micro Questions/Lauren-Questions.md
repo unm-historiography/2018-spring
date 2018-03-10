@@ -1,6 +1,6 @@
 ### HISTORICAL SCALES
 
-1. How did anthropology's interpretation of human culture and progress change between the **1860's and World War I**? What two schools of thought developed over this period as a result and how did they challenge former concepts of human evolution? Think back to the thoughts revolved around **Charles Darwin** and **Emile Durkheim** (Houses pg. 172-173). How do these thoughts compare to Claude Lévi-Strauss’s structural anthropology**? (Houses, pg. 89)
+1. How did anthropology's interpretation of human culture and progress change between the **1860's and World War I**? What two schools of thought developed over this period as a result and how did they challenge former concepts of human evolution? Think back to the thoughts revolved around **Charles Darwin** and **Emile Durkheim** (Houses pg. 172-173). How do these thoughts compare to Claude Lévi-Strauss’s **structural anthropology**? (Houses, pg. 89)
 
 2. Can you explain why the **holistic interpretative approach** might be difficult for macrohistory compared to microhistory as **Keith Thomas** argues? Do you agree with this assessment or is this just a historian's failure to **"explore the connections between these two levels of historical experience"** as **Georg Iggers** asserts? (Houses, pg. 174), (Iggers, pg. 104).
 
