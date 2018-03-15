@@ -24,4 +24,4 @@
 
 - Cleaned up point 4, shifted reasoning for the point away
 
--Increased formatting in bolding, italics, general word flow. 
+- Increased formatting in bolding, italics, general word flow. 
