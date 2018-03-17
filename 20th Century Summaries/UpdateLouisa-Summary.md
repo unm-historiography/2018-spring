@@ -15,6 +15,8 @@ The movement of Feminism changed the historical profession in many ways. It open
 Maurice Halbwachs put forth the idea "that there is such a thing as a collective memory, shared by the members of a given society, and that this memory alters over time - in other words, that is has its own history" (FHTH, p. 149). **This idea is significant because it puts into perspective that how a society views an event or a particular part of history, is in of itself, history.** The collective memory that a society obtains can give historians insights into how the public views the events of history. While an event/idea/policy might have meant to impact life in one way, it might have been taken differently by the population. It is important to remain skeptical and to ask questions, but it does bring history down from the level of a profession to the public level where it can be shared by everyone. 
 
 
+
+
 The first change I made during my revisions was ensuring that I bolded important sentences/phrases that encompassed the significance and the topic of each paragraph. It's important that the most vital sentence of my summary was the one that stood out from the rest. 
 
 The second change I made during my revisions was another round of proofreading. I found some minor mistakes in grammar and my sentence structures that I worked to clear up. It seemed to help with the flow of some of my bulletpoints while also allowing me to condense some of the longer bulletpoints that had been dragged on. 
