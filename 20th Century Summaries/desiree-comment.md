@@ -18,6 +18,9 @@ Desiree' Martinez
 
 
 1. edited unnecessary text/Revised academic advacements
+
 2.edited point 3 added "census" to list of new annals method of research/added that histories were transitioning from Macro to Micro
+
 3.pointed 4 added "computers" for description of techonology
+
 4.added to point 6 "cultural perspective"/added Microhistory/new sentence "In doing so,"
