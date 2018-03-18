@@ -8,7 +8,7 @@
 
 4. Cultural history's importance from the Annales historians remained the "third level" which is "connected to a basic foundation defined by demographic and economic conditions and...social institutions" (Popkin, p. 139). This is important in the development of microhistory. 
 
-**5**. Poststructuralist history believes "multiple and sometimes mutually exclusive interpretations [are] possible and inevitable, and the truth of an interpretation cannot be verified" (Green & Troup, p. 300). This means that all versions of history/histories are equally representative of reality and therefore *equally fictitious*. This is an important reality within the study of history because there is no way to truly determine the truth. 
+5. Poststructuralist history believes "multiple and sometimes mutually exclusive interpretations [are] possible and inevitable, and the truth of an interpretation cannot be verified" (Green & Troup, p. 300). This means that all versions of history/histories are equally representative of reality and therefore *equally fictitious*. This is an important reality within the study of history because there is no way to truly determine the truth. 
 
 6. Microhistory, developed by a group of scholars, focused on "a concentration of specific events, narrowly limited in time and space, and *usually involving otherwise unknown minor figures*" (Popkin, p. 140). This allowed historians to give humans of the past agency, instead of assuming Braudel's theory of social structures being the *only* influence of past humans. 
 
