@@ -20,8 +20,8 @@
 
 ### Changes:
 
-- Added detail to point 1, 3, 8
+- Added detail to points 1, 3, and 8, which I felt lacked the proper background. 
 
-- Cleaned up point 4, shifted reasoning for the point away
+- Cleaned up point 4, shifted reasoning for the point to be about the "history wars", which I felt was an important part of this reading (and displays the whirlwing of methodologies we will be discussing over the next weeks). 
 
 - Increased formatting in bolding, italics, general word flow. 
