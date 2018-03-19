@@ -7,3 +7,4 @@
 5. As most of history has been that of the people in power, Ethnohistory was a complete change. With the secularization during the Enlightenment, and the radical movements of WWII, society was itching to look outside the dominant narrative (Iggers, pg. 101). Was Ethnohistory the product of modernization, or was it the logical evolutionary step? 
 
 2
+8
