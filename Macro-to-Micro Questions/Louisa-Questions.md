@@ -11,3 +11,4 @@ Based on Geertz's criticism of Kieth Thomas on pages 174-175 in Houses, **do you
 Ranke believed that *"history differed from the natural sciences in that it dealt with singular events and did not aim at discovering general laws" (FHTH, 86).* While the Iggers piece paints a different picture of history, one that had become more dependent on the social sciences while also arguing that the generalizations made by the social sciences approach in history don't stand up to the evidence provided to other historians at the small-scale level of life (Houses, 175). **What pushed history to become so "dependent" upon the social sciences and their generalizations following the time of Ranke? Do you think that those generalizations produced might fit better with the "narrative" approach to history as both look to the past in a broader view than microhistory?** 
 
 2
+8
