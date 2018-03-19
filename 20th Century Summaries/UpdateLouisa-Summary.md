@@ -22,3 +22,5 @@ The first change I made during my revisions was ensuring that I bolded important
 The second change I made during my revisions was another round of proofreading. I found some minor mistakes in grammar and my sentence structures that I worked to clear up. It seemed to help with the flow of some of my bulletpoints while also allowing me to condense some of the longer bulletpoints that had been dragged on. 
 
 The third change I made during my revisions was removing two of the quotes in bulletpoint 6 since the paragraph was basically all quotes. I replaced two of the quotes with more assessment in the significance of the quote that stood out most to me during my reading of the Feminist Movement. I hadn't realized how I hadn't explained the significance of women entering the history profession in my first summary. 
+
+10
