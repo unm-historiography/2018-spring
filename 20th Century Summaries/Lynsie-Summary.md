@@ -21,3 +21,5 @@
 
 1. I added a second title to give a more cohesive understanding of the overall summary. 
 2. I went through and bolded more specific items within my summary as well as edited a few stentances to make them flow better.
+
+10
