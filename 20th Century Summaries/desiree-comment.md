@@ -24,3 +24,5 @@ Desiree' Martinez
 3.pointed 4 added "computers" for description of techonology
 
 4.added to point 6 "cultural perspective"/added Microhistory/new sentence "In doing so,"
+
+10
