@@ -7,3 +7,4 @@
 - Does **anthropology's contribution to the study of history** (the increased focus on the study of the private life, rather than the exclusive study of public and political history as a way to explore the social structures of societies) **create better historical narratives**? _(p. 174-5)_ Does it continue the work of **Marx** in creating a more "rounded" view of history by examining how different classes lived during different periods of history? _(Houses, p. 35)_ Or, alternatively, does the **inclusion of information** discovered from sources about **private historical life _hamper_** the writing of a "good" historical narrative?
 
 2
+10
