@@ -8,3 +8,4 @@
 7. **Ethnohistory** is defined as a mix between history and anthropology, yet is not specifically defined as a discipline, process, or methodology (p.4715). Is it safe to call ethnohistory a methodology given its distinct method of focusing on cultural interactions?  
 
 1.5
+9
