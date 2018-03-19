@@ -17,3 +17,4 @@
 8.	Green states that ethnohistory’s **“findings of historical research have profound material and political implications”** (Green, p. 206). The ethnohistorian James Axtell tried **“to bring the Indian into focus”** in his works to provide an indigenous perspective of white settlers in the early colonial period. Could ethnohistory reshape how history views politics in a similar fashion to how Marxist history impacted social history? (Green, p. 47)
 
 1
+10
