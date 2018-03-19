@@ -15,3 +15,5 @@
 -	‘Wars’ permeate throughout the world of historiography. The public is often far less interested in the truth than with a familiar narrative. In response to this, **some historians advocate that a distorted knowledge of history is better than none at all**, and are complicit in trends of historical fiction passed off as reliable narrative. Within communities, historians argue over the importance of nationalistic histories and to what extent “true” and often cynical narratives erode a society’s cohesion. Conversely, and of equal importance, historians debate the destructive and corruptive nature of misguided narratives. The debates are not likely to end in the near future. (Popkin pp. 153-162).
 
 - Change Description: Clarification was added in regards to the role of subaltern historians.
+
+10
