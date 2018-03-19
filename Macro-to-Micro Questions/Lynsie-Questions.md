@@ -11,3 +11,4 @@ Macro/Micro History Questions
 - How useful are ethnohistory and the methods they use, such as **"thick description"**, invented by Clifford Geertz, to the discipline of history (_Houses_, p 177)? Is there a line between symbolic interpretation and fiction? If so, how and where do we draw that line?
 
 1
+10
