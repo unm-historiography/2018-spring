@@ -20,4 +20,4 @@
 
 1.	I made grammatical improvements to the summary entry by fixing typos and improving the readability of the sentences. After looking at other GitHub entries, I improved the title of my entry by properly formatting it as a header. 
 
-2. I also added a bullet point expanding upon the context of "history wars" and the battle for historical truth. Even though, I mentioned Hayden White's work in the bullet point about the "paradigm shift" in history. My summary needed to address his work's impact in greater detail because it was a crucial part of our class discussion. 
+2. I also added a bullet point expanding on the context of "history wars" and the battle for historical truth. Even though I mentioned Hayden White's work in the bullet point about the "paradigm shift" in history, my summary needed to address his work's impact in greater detail because it was a crucial part of our class discussion. 
