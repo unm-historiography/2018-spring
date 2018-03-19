@@ -16,3 +16,5 @@ Changes made:
 - Updated points 3, 5, and 6
 - Added 8-10
 - Added points from *Houses*
+
+10
