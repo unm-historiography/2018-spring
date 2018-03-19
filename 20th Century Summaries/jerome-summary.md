@@ -17,3 +17,4 @@ Jerome T. Mondragon
 
 - Western countries also relied on __collective memory to interpret history__. Rather than relying on historians, countries created museums, historical sites, monuments, and even theme parks to reconstruct their past and create a new national identity. (Popkin 149) 
 
+9
