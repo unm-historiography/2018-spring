@@ -5,3 +5,4 @@
 -  Some concerns have been raised over microhistory studies being done in Germany to better uderstand how the common people supported or participated in the Nazi regime and the atrocities it commited. *" The fear that it will normalize the image of the Nazi regime by concentrating on the mundane everyday aspects of life that continued relatively undisturbed."* (Iggers p. 114-115). **Do you feel that Microhistory loses out on the larger context by focusing on such a narrow level, or do you feel that without understanding the individual common perspective we lose our undertsnding of how this larger contexts are able to occur seemingly under people's noses?**
 
 2
+7
