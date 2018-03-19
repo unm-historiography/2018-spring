@@ -1,4 +1,4 @@
-***Historigraphy from the 1960s to 2000***
+# ***Historigraphy from the 1960s to 2000***
 
 •	The latter half of the 20th century started with heightened race, revolutionary and class tensions. The political turmoil of the 1960s led to re-examinations of past historical works to undercover a **“new history” that told the stories of historical “poor” and “oppressed” individuals, social groups and ethnicities.** This is historically significant because outside societal pressures led mainstream historians to construct more objective narratives and works. This was an evolution and improvement of Ranke’s concept of objective history (p. 128). 
 
@@ -15,3 +15,5 @@
 •	**For the first time in the western world, the “Eurocentric view” of the historical world was challenged** (p. 146). Some historians such as Edward Said, led the movement to construct historical stories with more non-European perspectives. Jan Vansina fought to recognize the importance of African oral stories in their study of history (p. 147). This development allowed for a more global historical perspective.  
 
 •	The increased popularity of history in the late 20th century did not come without controversies. Culture wars ensued about the origins and accuracy of national history. **“History Wars” flourished as scholars and politicians debated popular and academic history** (p. 153). President Reagan only spoke about the bright spots of American history while his administration fought to dismantle “political correct” history (p. 157). The issue of political correctness was a hotly contested issue between academia and politicians because both sides claimed the other was misperceiving history in a subjective not objective manner. The “History Wars” over the accuracy of the past could be best illustrated by George Orwell’s 1948 novel *“1984”* that “he who controls the past controls the future. He who controls the present controls the past.” (p. 113). 
+
+1.	I made grammatical improvements to the summary entry by fixing typos and improving the readability of the sentences. After looking at other GitHub entries, I improved the title of my entry by properly formatting it as a header. 
