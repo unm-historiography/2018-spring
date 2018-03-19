@@ -20,3 +20,5 @@ Herodotus to H-Net Summary
 1. Added some clarifcation to bullets to include why they are important to larger historiographical context. I felt my summary was okay but could still use clearer phrasing when compared to others. 
 2. Did some small rewrites to related to the clarification I needed because I write very confusing phrasing sometimes. Added more formatting with bolding and italicized phrases. 
 3. Finally proofreading, there was a couple of mispelled words that I was able to find. 
+
+10
