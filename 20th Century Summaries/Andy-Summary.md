@@ -25,3 +25,5 @@
 2. To make my points more clear and meaningful, I added a sentence to particular paragraphs, stating the comparison of past historical frameworks that we have studied. I also reconfigured the formatting structure, by making sure the main point of each paragraph was included in the first sentence of that particular paragraph. 
 
 3. I bolded a few more key phrases and words, in order to focus the main points throughout the summary. I also corrected a few spelling and grammar errors that occurred. The final change I made, was the incorporation of actual bullet points, which I initially thought were unnecessary, but I realized they help with visual organization. 
+
+10
