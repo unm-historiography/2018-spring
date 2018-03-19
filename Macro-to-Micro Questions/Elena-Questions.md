@@ -15,3 +15,4 @@ George Iggers, “From Macro- to Microhistory: The History of Everyday Life,” 
 5. American ethnohistory faces an **“enduring problem of perspective”** when it comes to the Native American narrative (*Houses*, p. 176-177). Setting aside the problems that come with the lack of “first-hand accounts” from the indigenous peoples of North America, **would there still be a disparity** between how “insiders” and “outsiders” choose to depict Native American history (*Houses*, p. 176-177)?
 
 1
+10
