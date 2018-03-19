@@ -13,3 +13,5 @@
 
 I added additional information on the "Why?" aspect of some of my points, as well as adding an additional point to better include more of the pertinent points of the reading.
 I also fixed a few grammatical errors to increase readability.
+
+10
