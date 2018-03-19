@@ -13,3 +13,4 @@
 -	How do ethnohistorians compare to social and Marxist historians, particularly in the context of distinguishing indigenous peoples and “hearing their voices” in modernizing societies and in the historical record (Green/Troup pp. 176-177)? What might be a common or conflicting agenda behind social and ethnohistorians’ presentation of indigenous peoples?
 
 2.5
+8
