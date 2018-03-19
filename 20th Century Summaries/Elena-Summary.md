@@ -27,3 +27,5 @@ Elena Farmin
 
 
 * I was still satisfied with the information I chose to summarize and my sentence structure, but I decided to bold my major points since each of my bullet points contained a decent amount of information.
+
+10
