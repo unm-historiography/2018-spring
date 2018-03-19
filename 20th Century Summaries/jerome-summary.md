@@ -19,4 +19,4 @@ Jerome T. Mondragon
 
 9
 
-1. Highlighted words and phrases to emphasis key points in each bulletin.
+1. Bolded words and phrases to emphasis key points in each bulletin.
