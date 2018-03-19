@@ -10,3 +10,5 @@
 1. I added information to my points.
 2. I bolded many facts that I found to be important. 
 3. I mentioned some points from our readings about Marxist historical thought. 
+
+9
