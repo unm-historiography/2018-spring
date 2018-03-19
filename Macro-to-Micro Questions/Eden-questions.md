@@ -10,3 +10,4 @@ Moving from the dusty shelves of the elites to the daily struggle of the **avera
 4. Microhistory's advantages are within the methodology. There is a way to measure the truth it is looking for; however, it can be *too* close of a look and limit the existing outside factors (like economic factors, social institutions) that shape and reinforce our histories. This is a problem in creating a general narrative. How can this be rectified within microhistory? Does history *have* to include these outside factors to be considered a "**true history**"? 
 
 3
+7
