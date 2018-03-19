@@ -15,3 +15,4 @@
 7. Can you explain the approach pioneered by **Clifford Geertz** known as **"thick description"**? Can historians be objective while also reconstructing multiple meanings/interpretations of historical acts and the individuals involved? What was the possible meaning behind the disgusting acts described in **Robert Darnton's** work, *The Great Cat Massacre*? (Houses. pg. 177, 178) (Iggers pg. 104, 116)
 
 1
+10
