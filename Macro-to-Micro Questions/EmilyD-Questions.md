@@ -8,3 +8,5 @@
 - Would **quantitative history**--as *Houses* suggests it was intended--be assisted more by the **detail oriented** skills of microhistory's research? Or does the quantitative study of history require the **pattern finding** skills found in the study of macrohistory? ***Or*** should the theories of micro-/macrohistory be kept entirely separate from quatitative historical research? (Green and Troup, p. 143)
 - **Scientific history** is best defined by Popkin as the advancement of historical research to include more **methodical ways of procuring information**, and the objective presentation of said information (Popkin, p. 97-102). Do micro- OR macro- histories **conflict** with the fundamentals of Scientific history? If either one does conflict, what does that say about the study of history in general?
 - Since the inception of the **Annales School**, the role of historians has become more direct (Green and Troup, p. 87). Now, our purpose is to at least attempt to **tell the most accurate portrayal of history, with the information provided**. Does the discussion, or argument, on the finer points of macro- versus micro- *detract* from that main purpose?
+
+8
