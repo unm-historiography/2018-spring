@@ -1,5 +1,5 @@
 ## This is not Sparta but it is Foucault 
-# Not sure what that means either 
+### Not sure what that means either 
 
 In *The Archaeology of Knowledge* the main point I gathered from this *series of questions with unclear answers* was this: History has abandoned its uniqueness in favor of stable structures within. **What** exactly that means, I am not certain. However, this is my "translation" of what I considered to be the important points within *The Archaeology of Knowledge*: 
 History should not enter into the structures of other disciplines, like other humanities because history must remain unique. The *Archeology of Knowledge* says that there are *displacements* and *transformations*.  There are certain things *only* history can do. For example, history can  "transform documents into monuments". Nonetheless, there are *four consequences* of this: 
