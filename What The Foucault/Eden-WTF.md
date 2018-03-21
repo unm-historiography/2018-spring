@@ -20,7 +20,7 @@ In *The Birth of the Clinic*, I found the main points to be even more muddled. T
 * Following a natural progression, the medical field and "the medicine of individual perception" becomes either a collective or integrated (p. 20).
 
 I begin with a question. If everything has a form and within that form, it is significant, is significance inherently in a "form"? Is disease a life? "In disease, one recognizes life because it is on the law of life that knowledge of the disease is also based" (p. 7). So like *Ying and Yang*, there is no life without death and no decay without disease. 
-As someone with a debilitating and chronic autoimmune disease, I find this confusing and upsetting. My spatial orientation has certainly changed since my diagnosis, but I have the institutions of conventional medicine to thank for my treatment. I am *dependent* upon them. 
+As someone with a debilitating and chronic autoimmune disease, I find this confusing and upsetting. My spatial orientation has certainly changed since my diagnosis, but I have the institutions of conventional and modern medicine to thank for my treatment. I am *dependent* upon them. 
 "The sick man is no doubt incapable of working, but if he is placed in a hospital he becomes a double burden for society" (p.18) and if he is not healed and leaves the hospital, if nothing happens, the disease is left to appear and extinguish-- "and the assistance that is given in the home will make up for the poverty that the disease has caused" (p. 19). It has not only killed the disease but the humanity of the person with the disease. 
 
 So to sum: **Fuck off, Foucault**. 
