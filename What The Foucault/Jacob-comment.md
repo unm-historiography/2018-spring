@@ -5,3 +5,5 @@ As confusing as the writing style that Foucault utilizes, I oddly get how hes tr
 I can certainly appreciate his mindset wishing the follow abstract notions of historical fact and refuse to rigidly adhere to the objective nature of what documents may show. However, **I feel his approach is one best suited for philosophical discourse rather than standard historical review**. Foucault’s loose application of an objective truth is dangerous narrative as it blurs a sense of fact for followers of history who do not approach with the same intensive intellectualism that Foucault ascribes too. But, for readers who appreciate absurd or ingenious (depends on reader) review of historical fact who will still allow Foucault to reach into past and pull reason and answers from a murky past can still learn a great amount from his writing. 
 
 https://www.youtube.com/watch?v=BBJTeNTZtGU&t=11s -Link to a video essay about Foucault, his life, and his work. Really good insight into understanding his writings. 
+
+10
