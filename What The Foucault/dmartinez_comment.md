@@ -7,7 +7,7 @@
  
 - What it most interesting about Foucault is that the relation of diseases, epidemics, the body, and doctors, manifest into **national and economic issues**. Stating, "the definition of the political status for medicine and the constitution, at state level, of a medical consciousness whose constant task would be to provide information, supervison, and constraint , all of which **'relate as much to the police as to the field of medicine proper**." (p.26) Therefore, these issues "proliferate into the dimensions of a history, a geography, and a state." (p. 29) Thus, the **medical space** can coincide with **social spaces** which allows for traversion. Furthermore, knowledge is not just for the doctor but now the patient which is, "diffused in space and time, open and mobile, linked to **each individual existence**, as well as to the **collective life of the nation**." (p.31) 
 
- 
+9 
 
 
 
