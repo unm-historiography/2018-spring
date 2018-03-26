@@ -24,3 +24,5 @@ As someone with a debilitating and chronic autoimmune disease, I find this confu
 "The sick man is no doubt incapable of working, but if he is placed in a hospital he becomes a double burden for society" (p.18) and if he is not healed and leaves the hospital, if nothing happens, the disease is left to appear and extinguish-- "and the assistance that is given in the home will make up for the poverty that the disease has caused" (p. 19). It has not only killed the disease but the humanity of the person with the disease. 
 
 So to sum: **Fuck off, Foucault**. 
+
+9
