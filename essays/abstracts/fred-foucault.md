@@ -1,8 +1,10 @@
 ## Note the naming convention for your assignment: lastname-topic.md
 
-For my 1500 word essay, I propose to write about Foucault's impact on historiography.
+You should provide some sketch of what you intent to discuss--just the main themes and ideas you think it's important to address, not super detailed points you will make. 
 
-Punishment, then, will tend to become the most hidden part of
+As a special treat, here's more Foucault:
+
+>>> Punishment, then, will tend to become the most hidden part of
 the penal process. This has several consequences: it leaves the
 domain of more or less everyday perception and enters that of
 abstract consciousness; its effectiveness is seen as resulting from its
