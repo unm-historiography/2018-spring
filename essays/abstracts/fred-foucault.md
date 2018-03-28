@@ -1,6 +1,6 @@
-## Note the naming convention for your assignment: lastname-topic.md
+## Note the naming convention for your assignment: name-topic.md
 
-You should provide some sketch of what you intent to discuss--just the main themes and ideas you think it's important to address, not super detailed points you will make. 
+You should provide the main topic (medieval, gender, foucault, whatever) and some sketch of what you intend to discuss--just the main themes and ideas you think it important to address, not super detailed points you will make. That will come later. This is to help us sort out who's doing what and how everything will fit together, which we will discuss on Monday. 
 
 As a special treat, here's more Foucault:
 
