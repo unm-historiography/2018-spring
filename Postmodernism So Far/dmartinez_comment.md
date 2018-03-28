@@ -5,7 +5,7 @@ Desiree' Martinez
 
 - It is not hard to see from this position of the "house" that with every **major historical event** (which have effected all classes) like revolutions (Marx), the World Wars (Annales/Microhistory), and Civil Rights movements (Quantitative/Colonial/Gendered histories), have constructed ideals/viewpoints/considerations which have **initiated paradigm shifts**. And therefore, it could be hypothesized that these shifts will occur once again though we do not know what exactly that will entail. However, I do **champion** the Postmodern approach and believe that it has occured for too long that, "History has altered its position in relation to the document." (Foucault Arch p.6) Referencing Roger Chartier, "to note how, in different times and places, a specific social reality was **constructed**, how people **conceived** of it and how they **interpreted** it to others; **created** 'imaginative works built out of _social materials_' " (Houses, p.303) Thus, it is with Postmodernism that **agency and individualism** is evoked and the historian can "examine all vantage points" and contribute their brick to the "house." (Houses, p.298) History no longer has to be "conditioned" to the past.
 
-
+8: wanted to see a more explicit argument about the extent to which postmodernism can be seen as similar "transition" as other shifts or if something sets it apart--you seem to have both threads here, so it's hard to discern your position.
 
 
 
