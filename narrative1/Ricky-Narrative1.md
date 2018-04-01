@@ -1,4 +1,4 @@
-## Points of Interest from *Narrative and History* Reading
+## Points of Interest from *Narrative and History* Reading (Intro-Ch. 2, p. 1-43). 
 
 - Munslow’s clear distinction between past and history accurately describes the phenomena historians have shifted towards in the later 20th century. Looking at how “the past exists not only as a form of created phenomena” radically alters the job of the historiographers, and provides justification for the narrative turn in history (Munslow, p. 9)
 
