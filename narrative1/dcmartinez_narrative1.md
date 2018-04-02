@@ -16,6 +16,8 @@ Desiree' Martinez
 - Turns (challeging epistemology/reconstructing what we already know):
 -- Linguistic
 -- Aesthetic 
+-- Ethical
+-- Cultural
 (p. 8)
 - Justified Belief/Narrative Turn:
 -- history is **constructed thru the lense** of the historian based on their **interest**. Therefore we 'learn' history based on their construction. (p.17)
