@@ -20,17 +20,17 @@ I would be interested in researching and contributing to the Archaeology portion
 - Claude Lévi-Strauss' 
 - Jean-Claude Schmitt
 - Julian Steward
-###### III. Quantitative History
+###### III. Quantitative History- 1960-70's
 - Big Data=
 - Thomas Kuhn
-###### IV. Ethnohistory
+###### IV. Ethnohistory 1940-1980's
 - Social and Cultural Combination=
 - Edward Burnett
 - Keith Thomas
 - Joan Scott
 - James Axell
 - Natalie Zemon Davis
-###### V. Postmodernism
+###### V. Postmodernism- 20th century
 - Transition from Structures/School/Categories=
 - Michael Foucault
 - Jacques Derrida
