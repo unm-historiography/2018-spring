@@ -1,4 +1,4 @@
-# The Process of Building a Narrative
+# Building a Narrative
 
 1.	William Gallie questioned if “the story of the past actually existed to be found” (P. 3). Do you believe that historians can provide an accurate and true account of the past? Do you believe that we should adopt the “the past-as-history” approach? (p. 8)
 
