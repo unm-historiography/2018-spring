@@ -5,3 +5,5 @@
 2.	Gerald Genette stated “there never has been a pure fiction or non-fiction” (p. 23). **If that is true, how can historians organize their narratives in the least subjective manner? (p. 24)**
 
 3. Do you believe that the process of **gathering information and telling a narrative is a scientific process?** (p. 39) How do constructionists and deconstructionists view the process of building a historical narrative differently?
+
+3
