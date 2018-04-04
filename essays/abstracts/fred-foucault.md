@@ -32,3 +32,5 @@ of protection that justice has set up between itself and the punishment
 it imposes. Those who carry out the penalty tend to
 become an autonomous sector; justice is relieved of responsibility
 for it by a bureaucratic concealment of the penalty itself. 
+
+10
