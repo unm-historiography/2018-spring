@@ -1,3 +1,5 @@
 I would like to address Postcolonialism, since it's a huge problem in the way we study history and it seems like no one else is goingto address it. There's a lot to cover, but I would start with the problems of seperating "Colonial" history and ideas from histories about pre-colonial societies, the merits of addressing history outside of a Euro-centric veiwpoint, and a discussion on the thin line dividing whether it's worthwhile for people outside the colonized society to discuss pre-colonial history (as in, is the viewpoint to biased, or can a "Good" history still be produced).
 
 *I'd personally like to do Gender, but I see that someone already has claim to it and I'm not sure that I could add much more to it than the perspective of someone outside the gender-binary looking in at the study of history as something that has not only catered mostly to "men" in the past, but has observed that the only real shift that's ever happened is just to include more "women," conveniently leaving out non-binary people like me, transpeople, and other genders that lie outside the strict male/female binary. I'll bring this into peer-review instead. 
+
+3
