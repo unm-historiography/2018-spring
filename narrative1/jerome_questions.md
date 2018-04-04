@@ -8,3 +8,4 @@ without worrying about being categorized?
 
 - Munslow mentions that, "Even not doing history has purpose. Indeed, invoking one set of data rather than another has an ethical purpose." (42) When should a historian include or not include information when they're trying to make an arguement?
 
+3
