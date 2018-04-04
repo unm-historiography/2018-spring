@@ -9,3 +9,5 @@ Is this an echo of the common claim that there is no fact, but rather only perce
 
 3) Marwick has some interesting perspectives on 'the postmodern fantasty' and 'the facts'.
 Does he place _too_ much emphasis on primary sources? Can't they _too_ be manipulated for an agenda?
+
+2
