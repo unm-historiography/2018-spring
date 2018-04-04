@@ -6,3 +6,4 @@ Elena Farmin
 
 * Munslow states that “history is not a replication of that which is past and gone” (p. 29). Historical narratives are judged by their representation of a subject, aesthetical choices, “emplotment,” “ethical/ideological choice,” etc. (p. 43). How does the analysis of a historical narrative compare to the scrutiny given to fictional depictions of historical topics (plays, film, television, etc.)?
 
+3
