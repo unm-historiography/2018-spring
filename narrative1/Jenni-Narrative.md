@@ -7,4 +7,4 @@
 3.) The description of history as "**fictive**" leaves me with mixed feelings. While I agree, **the only way to try to recover history 
 is by creating a narrative about it**, I'm not sure that it inherently makes it "fiction." In my personal opinion, _if there is a devotion to as much corroborative evidence as possible, the narrative of history lies in a middle ground between absolute truth and pure fiction_. This grey area is the best we can hope for, since history is so subjective (as established earlier), but "fictive" is too dissmissing of a term. (p.29).
 
-3
+4
