@@ -1,1 +1,3 @@
 I would like to take a crack at Foucault (and his relation to post modernism) for my section of the final. His work is a divisive body that allows impassioned discussion of his faults or successes as a writer. For our historiographical context it’s obvious he’s had a massive effect on relation to history, and for these reasons offers an important stepping stone to understanding the modern historical context we currently exist in. I’d to write about how his ideas form crucial segments of the postmodernist school allowing us to develop a framework for abstract historiographical thinking. Without the ability to think openly about history I’d argue we fall into ruts trying to find singular causes for massively complex events 
+
+3
