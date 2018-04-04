@@ -11,4 +11,4 @@ In what way does *deconstructionism* challenge the two former approaches? Why ar
 
 3. What constitutes the concept of **_followability?_** How is **_troping,_** or how we ascribe meaning to events in terms of similarity and difference, link to the concept of *followability?*
 
-3
+2
