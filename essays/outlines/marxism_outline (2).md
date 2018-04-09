@@ -1,0 +1,11 @@
+### Marxism Outline
+Jerome T. Mondragon
+
+- There are many factors that contribute to the Historiography in Marxism including author's influences and perspective, tone, language, and a countrie's nationalism. These factors shapes demononstrate how a pesonal and national bias is crucial to the development of a historiological narrative. 
+- There were many influences for the development of Marxism. Throughout history, there has always been a ruling class and a subordinate class. (Marx and Engels, 3-7) In the first chapter to the Communist Manifesto, Frederick Engels mentions history's numerous class struggles beginning from ancient Rome (9). Marxism is not the sole idea of Marx and Engels; therefore, merely reinterpeted by them.
+- There are numerous requirements for Marxism to be sucessful: class distinction (Marx and Engels, 6), industrialization i.e. capitalism (16), enlightened masses (5), "emancipation of the workers" and abolition of old systems (6, 20).
+- Marxism is unique to different countries (Marx and Engels, 20). Thus, each country will have their own interpretation of Marxism.
+- The tone of their work is very important in a historiological standpoint. Marx and Engels make scathing criticizms to the various forms of Socialism. The tone of the work is very condenscending, like an adult scolding an ill informed child. (Marx and Engles, 32-42) 
+- _What is to be Done?_ by Vladimir Lenin also mentions that the, "role of vangaurd can be fullfilled only by a party that is guided by an advanced theory (28). This sets a historiological tone of the Marxist movement which indicates responsibile role yet an air of superiority over the ill-informed masses.  
+- In _Marxism and the National Question_ by Joseph Stalin, he defines nationhood and its requirements as " historically constituted, stable community of people, formed on the basis of a common language, territory, economic life and psycological make-up manifested in a common culture (12-13). These are the same factors that interpret history and Marxism. 
+- Stalin compares and criticizes the Marxist movement in Austria-Hungary. Similar to what Lenin and Marx mentions in their work, Stalin asserts that the Marxist methods applied to other countries can't be applied to Russia. Brute force is the only option to assert change! (30-31) 
