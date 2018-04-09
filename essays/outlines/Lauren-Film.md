@@ -5,6 +5,7 @@ When watching a film or documentary, as an average person, you are immersively p
 
 **Points to make/rough paragraphs:**
 - Discussing of the history of film itself leading into how film, particularly film in the style of documentaries became associated with representing the past.
+- Discussing the different types of film involving history. Documentaries, tv series, movies, youtube series, etc...
 - Value of film for history. Documenting wars, political and social events, crimes against humanity. Connections to cultural history.
 - Paragraph addressing photography as a medium. Historical photographs of Vietnam affecting political history for example. Still photography capturing moments in time, being used to compare past with the present.
 - Criticism and potential problems. Photos and film can be altered, how hard is it to discern this? Art and song are not always based on fact. Emotions and memories can be flawed. Commentary of the exact same raw footage can completely alter the meaning and narrative of that film, images taken out of context, propaganda, etc.
