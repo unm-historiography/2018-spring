@@ -19,7 +19,7 @@
   - What is gender studies?
  - Differences between gender/women's history in the 1960s vs now
   - Modern female, LGBTQ, non-binary, intersectional historians and their approach to history and historiography
-- Where is historiography going for those who study gender/women/feminist theory/LGBTQ issues?
+- What is potentially the future of historiography for those who study gender/women/feminist theory/LGBTQ issues?
   - Praise and criticisms of 21st century women's historiography
 - Conclusion
 
