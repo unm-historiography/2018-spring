@@ -14,17 +14,19 @@ When watching a film or documentary, as an average person, you are immersively p
 
 **Citations & Sources:**
 
-	Barber, Sian. Using Film as a Source. Manchester: Manchester University Press, 2015.
-	Dennett, Bruce. “Teaching Historiography through Film.” Teaching History 44, no. 3 (September 2010): 20.
+-Barber, Sian. Using Film as a Source. Manchester: Manchester University Press, 2015.
 
-	“Film Historiography - Manchester Scholarship,” July 1, 2015. http://manchester.universitypressscholarship.com/view/10.7228/manchester/9780719090301.001.0001/upso-9780719090301-chapter-004.
-	Jones, Janna. The Past Is a Moving Picture: Preserving the Twentieth Century on Film. Florida, UNITED STATES: University Press of Florida, 2012. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=990868.
-	
-	Lameris, Bregt. Film Museum Practice and Film Historiography: The Case of the Nederlands Filmmuseum (1946-2000), 2017. http://search.ebscohost.com/login.aspx?direct=true&scope=site&db=nlebk&db=nlabk&AN=1593136.
-	
-	Vonderau, Patrick, ed. Film as History, History as Film. Working Papers “Gemenskaper-Gemeinschaften,” v. 21. Florence, Italy : Berlin: European University Institute ; Humboldt-Universität zu Berlin, 1999.
+-Dennett, Bruce. “Teaching Historiography through Film.” Teaching History 44, no. 3 (September 2010): 20.
 
-	Wilson, Kristi M., Tomas F. Crowder-Taraborrelli, and Tomas F Crowder-Taraborrelli. Film and Genocide. Wisconsin, UNITED STATES: University of Wisconsin Press, 2012. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=3445214.
+-“Film Historiography - Manchester Scholarship,” July 1, 2015. http://manchester.universitypressscholarship.com/view/10.7228/manchester/9780719090301.001.0001/upso-9780719090301-chapter-004.
+
+-Jones, Janna. The Past Is a Moving Picture: Preserving the Twentieth Century on Film. Florida, UNITED STATES: University Press of Florida, 2012. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=990868.
+	
+-Lameris, Bregt. Film Museum Practice and Film Historiography: The Case of the Nederlands Filmmuseum (1946-2000), 2017. http://search.ebscohost.com/login.aspx?direct=true&scope=site&db=nlebk&db=nlabk&AN=1593136.
+	
+-Vonderau, Patrick, ed. Film as History, History as Film. Working Papers “Gemenskaper-Gemeinschaften,” v. 21. Florence, Italy : Berlin: European University Institute ; Humboldt-Universität zu Berlin, 1999.
+
+-Wilson, Kristi M., Tomas F. Crowder-Taraborrelli, and Tomas F Crowder-Taraborrelli. Film and Genocide. Wisconsin, UNITED STATES: University of Wisconsin Press, 2012. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=3445214.
 
 
 **Notes:** 
