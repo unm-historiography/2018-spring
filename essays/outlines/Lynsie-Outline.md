@@ -1,9 +1,10 @@
 ### Women's Historiography 1990-present
 - Brief recap of previous decades from Emily to make a smooth transition into the more recent research/literature
   - Second-wave feminism
-   - Houses, “Gender History”, 253-62
-   - Joan Scott, “Gender: A Useful Category of Historical Analysis”
+    - Houses, “Gender History”, 253-62
+    - Joan Scott, “Gender: A Useful Category of Historical Analysis”
   - Foucault
+    - History of Sexuality
   - Introduction of women into historical record and higher education for women
     - Popkin, 142-146
 - Impact of third-wave feminism
