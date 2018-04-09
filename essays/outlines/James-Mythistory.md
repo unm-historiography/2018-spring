@@ -6,7 +6,7 @@
 
 •	In 1986, the academic historian George McNeill wrote a journal article called “mythistory” that attacked certain popular histories for perpetuating false narratives (McNeill, 1986). McNeill explained that national histories that promoted “mythistories” were dangerous because they heightened conflicts among various ethnic and national groups. 
 
-•	How do politicians interject themselves in the historical debate? Influential politicians like Prime Minister Margaret Thatcher and President Ronald Reagan criticized academic history for not accurately presenting the past (Popkin, 2016, (p. 156). President Reagan’s administration waged a cultural war on “political correctness” in academic history. How did these political movements impact the line between scholarly and popular history?
+•	**How do politicians interject themselves in the historical debate?** Influential politicians like Prime Minister Margaret Thatcher and President Ronald Reagan criticized academic history for not accurately presenting the past (Popkin, 2016, (p. 156). President Reagan’s administration waged a cultural war on “political correctness” in academic history. How did these political movements impact the line between scholarly and popular history?
 
 •	In 1996, Edward Linenthal’s book *History Wars: The Enola Gay and Other Battles for the American Past* raised questions about societal perspectives of America’s past. **Linenthal’s book re-examines mainstream popular history that portrays the United States as the good guys.** For example, he looks at the dropping of the Atomic Bonds in Japan and the idea of America “taming of the west” (Linenthal, 1996). 
 
