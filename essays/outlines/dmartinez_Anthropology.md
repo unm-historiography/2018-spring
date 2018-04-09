@@ -2,7 +2,9 @@
 Desiree' Martinez
 
 **I. Historical Sociology and Anthroplogy**
-    **A. Marxism transition to the Annales school** 
+    
+**A. Marxism transition to the Annales school** 
+
 -    After World War II historians developed a new methodology of understanding history, Annales, which relied on empirical evidence and used cultural material as evidence associated with Anthropology to understand societies.   
 - "while historians charted the rise of nations, anthropologist traced the cultural and social evolution of mankind" (Houses p.172)
 - Where Marxism emphasised class disparities anthropology sought to, "redirect historians' attention away from the public, political sphere of human action towards private, daily life, by rediscovering old sources, including oral history and tradition." (Houses, p. 174)
