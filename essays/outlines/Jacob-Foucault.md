@@ -1,4 +1,5 @@
 Foucault Outline 
+
 *The Postmodern experiment of narrative*
 
   • The examination of narrative in history has brought to question the need to understand the implicit value of language in our writing.
