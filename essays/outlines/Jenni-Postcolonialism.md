@@ -1,0 +1,27 @@
+(I know my outline style is a little different than most of yours, please be patient with me)
+
+1)	Separating colonial viewpoints from precolonial history
+- Set up
+- Euro-centric viewpoints: define, establish(?)
+- "postcolonial" term: really post? (often times no)
+2)	Why it’s important (merits of looking from **outside** Euro-centric view)
+- Useful/necessary for shedding bias (from Euro-centric viewpoint) 
+3)	Can a true postcolonial history be written by someone outside the society?
+- Different sides/culture think differently: some yes (Indigenous Americans, Pacific Islanders), some no
+- Necessary to shed Euro-centric bias (as much as possible)
+
+Evidence:
+- Eurocentric views often ignore problems caused by colonization in histories: "...engaged in complex negotiations over the return of land and naturals resources." _(Houses, 278)_
+- "Historians in these countries play a key role in reconstructing the historical process of land alienation." _(Houses, 278-9)_ (Historians help establish what life was like before colonization, which helps the political process of "decolonization:" the withdrawl of colonial forces, hopefully, with the goal of the colonized people regaining their power/independence.) 
+- "The Angel of Progress", McClintock (p.259): "Postcolonial" doesn't actually mean after colonization usually.
+- leadership/postcolonial historian divergence? _(Houses, 279)
+- Orientalism intersection _(Houses, p, 279,280)_: Europeans categorized peoples they conquered- the "orient" as a generalization about everything _not_ Europe, viewed as politically unchanging, socially cruel (binary opposite of Europe), justifiable to exploit
+- "Postcolonial historical writing in the past twenty years has developed these two critiques of imperialism and colonialism by deconstructing colonialist discourses, and reconstructing the appalling scale of loss experienced by colonized and indigenous peoples." _(Houses, 281)_
+- _The Nation and its Fragments_, Partha Chatterjee _(p. xi)_: Eurocentric history views colonialism as part of capitalist development, "European grand narrative of modernization"
+- "The Postcolonial Aura", Arif Dirlik. _(p. 329)_: The goal of postcolonial history is to reestablish societies as complex, rather than the colonial views of them as part of binaries (and maybe also simplistic? tied with the generalizations).
+- One method of postcolonial history: (essentialism) Colonized peoples can only combat colonization  by returning to pre-colonization ways of life. _(Houses, 282)_
+- Another: (Subaltern) rexamination of colonialism through modern methods, history written from the perspective of small elite class, rewrite now from other, multiple perspectives. _(Houses, 283)_ (representation as a problem being addressed)
+- In some places, "possessive exclusivism" is employed- only the colonized should write pre-colonial history (Houses, 282)
+- "Questions of Multi-culturalism," Gayatri Chakravorty Spivak (p.62-3): Postcolonial histories can be written by non-colonized people.
+- Chakraborty: way forward is through critical engagement with concepts that legitimize nation-state _(Houses, 284)_
+- One of the difficulties of postcolonial history is interaction with western ideas/sources. writing relies on source usage that societies may not have, or only have access to Western-produced sources. _(Houses, 284-5)_
