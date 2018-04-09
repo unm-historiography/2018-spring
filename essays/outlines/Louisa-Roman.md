@@ -3,10 +3,7 @@ Roman Historiography
 My introduction will include:
 1. A brief overview of the Roman world
 2. Possible short introductions for the historians I will talk about?
-3. Will include the major themes:
-Roman Religion
-Importance of Oral Histories
-Mythology vs. The Truth
+3. Will include the major themes: Roman Religion, Importance of Oral Histories, Mythology vs. The Truth
 
 I want to include a brief overview of Herodotus and Thucydides since they had *"...provided important models for subsequent historians in the ancient Greek and Roman world and for their successors ever since"* (Popkin, 29). While they were not Roman, they did impact how future Roman historians approached historical writing. Possibly discussing the critiques or challenges faced by Herodotus and Thucydides for their models (how much of the source is the truth and how much is myth?)
 
