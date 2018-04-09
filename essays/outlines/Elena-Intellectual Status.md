@@ -1,6 +1,6 @@
 Elena Farmin
 
-Professionalization Outline
+Intellectual Status Outline
 
 **Intro:**
 
