@@ -1,4 +1,4 @@
-### Very Basic Outline: Film & Other Nontextual Sources of History
+### Very Basic Outline: The Value of Film within a Historical Narrative
 
 **Thesis:**
 When watching a film or documentary, as an average person, you are immersively placed into a moment in history that reading a text can never accomplish. Raw footage of historical events can be arguably more objective. We can identify (assuming the footage wasn’t doctored) that the events being filmed did in fact happen. Film can also be more relatable, the ability to look into the eyes of people from the past makes it easier to understand what those individuals went through. Texts are unable to do this as impactfully. Humans are creatures ruled by their senses, various forms of media provoke an emotional response. Song and art can invoke passion, photography can capture iconic moments which on their own can alter the “course of history”, films about history bring it to life and help viewers better relate to the past. Nontextual sources of history are uniquely capable of communicating the emotional impact of historical events.
