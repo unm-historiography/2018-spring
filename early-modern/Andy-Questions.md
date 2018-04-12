@@ -10,7 +10,7 @@
 
 4. How did the **Protestant Reformation** divide Europeans in a social and educational context?(p. 52-53) How did this religious upheaval affect history, as well as, other aspects of social life?
 
-5. The *printing press*, created in 1460 by Johannes Gutenberg, changed the way in which texts circulated and expanded access of historical access to the masses.(p. 53) How did this access to historical information, as well as, current events, create a more humanistic framework of knowledge? What were some of the major new mediums created in the Early Modern Era?(p. 55) How did these new forms of representation of historical, pseudo-historical, and current events reflect **Humanism** during this period?
+5. The *printing press*, created in 1460 by Johannes Gutenberg, changed the way in which texts circulated and expanded access of historical material to the masses.(p. 53) How did this access to historical information, as well as, current events, create a more humanistic framework of knowledge? What were some of the major new mediums created in the Early Modern Era?(p. 55) How did these new forms of representation of historical, pseudo-historical, and current events reflect **Humanism** during this period?
 
 6. The critical methods of historical writing and the rejection of authority for the bible foreshadowed the major intellectual movement of the 18th century called **The Enlightenment**. How did The Enlightenment create a *quarrel of the ancients and the moderns?* (p. 60) Was antiquity the pinnacle of human achievement, or can modern authors of the Early Modern Era, or even today, be as equally masterful?
 
