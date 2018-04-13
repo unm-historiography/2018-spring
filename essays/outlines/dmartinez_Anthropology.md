@@ -34,9 +34,32 @@ Desiree' Martinez
 
 **B. Annales to Functionalism- 20th Century**
 
-- _Alfred Radcliffe-Brown_ (British Anthropology)
 - _Bronisław Kasper Malinowski_
--- "Participant observation" (Houses, p. 172) 
+-- "Participant observation" (Houses, p. 172)
+
+- _Alfred Radcliffe-Brown_  and _Sir Edward Evan Evans-Pritchard_ (British Anthropology)
+-- " MARETT LECTURE OF I950, Professor Evans-Pritchard told us that 'social anthro- pology is a kind of historiography, and therefore ultimately of philosophy or art, . . . that it studies societies as moral systems and not as natural systems, that it is interested in design rather than in process, and that it therefore seeks patterns and not scientific laws, and interprets rather than expains." In response Radcliffe-Brown states, "In the primitive societies that are studied by social anthropology there are no historical records' (Radcliffe-Brown I952, P. 3); and 'confusions amongst anthropologists result from the failure to distinguish between historical explanation of institutions and theoretical understanding." (p.73)
+
+-- " It is equally erroneous to treat written records as synonymous with history, or to assume that their absence indicates an absence of history." (p. 73) Thus, "history does not relate all the actions done by all men in all past time, but only some actions done by some, men at some known time and place." 
+
+-- " single term 'history' has three distinct references: some series of past events, our knowledge of these past occurrences, and our record of this knowledge. Therefore, the historical status of the past is thus problematic only in so far as our knowledge of it is in doubt." (p. 74) "The historicity of a statement about the past is its evidential trustworthiness, and this in turn implies verifiable reference to events which occurred at a given time and place."
+
+-- " Historical significance has two main conditions, namely, relevance and accuracy." (p. 74) 
+
+-- * "The accept- ability of a historical explanation depends on the fullness and reliability of the record.... Anthropologists, thinking of their study as a kind of historical study, fall back on con- jecture and imagination, and invent "pseudo-historical" or "pseudo-causal" explanations." (p. 75)
+
+--  with functional theory and method= 'problems of social development can only be studied in terms of history' (p. 6o). Accord- ingly the view of 'functional anthropologists that it is not (their) task . .. to investigate the history of the societies they study, and furthermore that a knowledge of their history does not help us to understand the functioning of their institutions' (p. 59), is a simple refusal to test this theory in the only appropriate way, and represents an explicit rejec- tion of scientific method." (p. 78)
+
+-- " social anthropology 'studies societies as moral, or symbolic, systems and not as natural systems, that it is less inter- ested in process than in design, and that it therefore seeks patterns and not laws, demon- strates consistency and not necessary relations . . ., and interprets rather than explains." (p. 79)
+
+-- "'functionalist claim that the history of an institution is irrelevant to an understanding of it at the present time." (p. 80)
+
+-- " the method of both historiography and social anthropology is descriptive integration" "seeks patterns rather than laws, and interprets rather than explains." (p. 80)
+
+-- " history alone provides a satisfactory situation in which the hypotheses of functional anthropology can be tested." (p. 81) 
+
+-- Brown= "nction as 'the contribution which a partial activity makes to the total activity of which it is part." (p. 82)
+
 - _Clifford Geertz_ 
 -- "interpretive archaeology" 
 
