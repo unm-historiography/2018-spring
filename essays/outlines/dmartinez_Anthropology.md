@@ -10,7 +10,7 @@ Desiree' Martinez
 - Where Marxism emphasised class disparities anthropology sought to, "redirect historians' attention away from the public, political sphere of human action towards private, daily life, by rediscovering old sources, including oral history and tradition." (Houses, p. 174)
 - _Sir Edward Burnett Tylor_ (1890's) "the founder of academic anthropology" 
 -- defined Culture: "taken in its wide ethnographic sense is that complex whole which includes knowledge, belief, art, morals, law, custom and any other capabilities and habits aquired bty man as a member of society." (Houses, p. 172)
-- _Franz Boas_ (1890's) "Father of American (cultural) Anthropology"
+- **Franz Boas** (1890's) "Father of American (cultural) Anthropology"
 -- "established that race, culture, and language were seperate aspects of human existence" (Houses, p. 173)
 
 -- In 1904 when addressing the _International Congress of Arts and Science_ in St. Louis, regarding the history of anthropology he states, " We find in anthropol- ogy two distinet methods of researeh and aims of investigation: the one, the historie- al method, whiGh endeavors to reGonstruet the aetual history of mankind; the other, the generalizing method, whiGh attempts to establish the laws of its development." (p.514)
@@ -37,7 +37,7 @@ Desiree' Martinez
 - _Bronisław Kasper Malinowski_
 -- "Participant observation" (Houses, p. 172)
 
-- _Alfred Radcliffe-Brown_  and _Sir Edward Evan Evans-Pritchard_ (British Anthropology)
+- **Alfred Radcliffe-Brown_  and _Sir Edward Evan Evans-Pritchard** (British Anthropology)
 -- " MARETT LECTURE OF I950, Professor Evans-Pritchard told us that 'social anthro- pology is a kind of historiography, and therefore ultimately of philosophy or art, . . . that it studies societies as moral systems and not as natural systems, that it is interested in design rather than in process, and that it therefore seeks patterns and not scientific laws, and interprets rather than expains." In response Radcliffe-Brown states, "In the primitive societies that are studied by social anthropology there are no historical records' (Radcliffe-Brown I952, P. 3); and 'confusions amongst anthropologists result from the failure to distinguish between historical explanation of institutions and theoretical understanding." (p.73)
 
 -- " It is equally erroneous to treat written records as synonymous with history, or to assume that their absence indicates an absence of history." (p. 73) Thus, "history does not relate all the actions done by all men in all past time, but only some actions done by some, men at some known time and place." 
