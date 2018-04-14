@@ -22,7 +22,9 @@
    - Definition of "third wave feminism": Third Wave's definition of feminism explicitly connects women’s issues to issues of race, sexuality, class, and ability. (http://thirdwavefund.org/history--past-initiatives.html) 
     - Importance of current events that prompted Third Wave Feminism 
       - Clarence Thomas and Anita Hill, Planned Parenthood v Casey
+      - Unfinished legacies and work from Second Wave Feminism
       - “Becoming the Third Wave" by Rebecca Walker, 1992
+        - Daughter of Alice Walker, prominent Second Wave Feminist
   - Intersectionality
     - Diversification
     - Strong connection to poststructualism, postcolonialism
