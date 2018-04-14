@@ -25,6 +25,7 @@
       - Unfinished legacies and work from Second Wave Feminism
       - “Becoming the Third Wave" by Rebecca Walker, 1992
         - Daughter of Alice Walker, prominent Second Wave Feminist
+      - https://www.ted.com/talks/courtney_martin_reinventing_feminism#t-56638
   - Intersectionality
     - Diversification
     - Strong connection to poststructualism, postcolonialism
