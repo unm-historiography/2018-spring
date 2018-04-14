@@ -17,6 +17,7 @@
   - Importance of race/intersectionality
     - Introduction of the field of gender and race in the 1980s within the US broadened the field as a whole and led to new  "global persepectives", Gisela Bock, *Gendering Histories*, p 312 
   -Feminitiny, LGBTQ, non-binary, intersectional historiography
+    - Intersex: *“An Unnamed Blank That Craved a Name”: A Genealogy of Intersex as Gender*
 - Impact of third-wave feminism
   - Intersectionality
     - Diversification
