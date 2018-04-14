@@ -16,9 +16,13 @@
     - Call for more research with more representation 
   - Importance of race/intersectionality
     - Introduction of the field of gender and race in the 1980s within the US broadened the field as a whole and led to new  "global persepectives", Gisela Bock, *Gendering Histories*, p 312 
-  -Feminitiny, LGBTQ, non-binary, intersectional historiography
-    - Intersex: *“An Unnamed Blank That Craved a Name”: A Genealogy of Intersex as Gender*
-- Impact of third-wave feminism
+  - Feminitiny, LGBTQ, non-binary, intersectional historiography
+     - Intersex: *“An Unnamed Blank That Craved a Name”: A Genealogy of Intersex as Gender*
+- This change and broadening of research was in part impacted by third-wave feminism (began in 1992)
+ - Definition of "third wave feminism": Third Wave's definition of feminism explicitly connects women’s issues to issues of race, sexuality, class, and ability. (http://thirdwavefund.org/history--past-initiatives.html) 
+  - Importance of current events that prompted Third Wave Feminism 
+    - Clarence Thomas and Anita Hill, Planned Parenthood v Casey
+    - “Becoming the Third Wave" by Rebecca Walker, 1992
   - Intersectionality
     - Diversification
     - Strong connection to poststructualism, postcolonialism
