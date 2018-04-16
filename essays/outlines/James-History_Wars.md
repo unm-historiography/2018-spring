@@ -1,4 +1,4 @@
-# *The History Wars: Mythistory, Popular and Scholarly History*
+# *The History Wars: Popular and Scholarly History*
 
 •	As history grew in popularity in the 20th century, historians faced a dilemma: to write a popular or a scholarly history. **While popular history has a greater audience, “popular history is often looked down upon by more academically minded historians” (Norton, 2013).** Academic or scholarly history is designed to be more objective and result from more rigorous research while popular history is designed to reach mass audiences (Popkin, 2016 (p. 153). 
 
