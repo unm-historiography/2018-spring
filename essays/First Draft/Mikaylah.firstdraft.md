@@ -1,4 +1,4 @@
-###Historical Sociology
+### Historical Sociology
 
 History and sociology are two disciplines that many do not see as being compatible, when in fact; used together they can be very useful. The thought of scholarly disciplines being mixed often makes scholars cringe. My aim in this essay is to explain these two disciplines separately and then collectively. This essay will focus on the mid to late 20th century because this is the time period historical sociology begins being discussed as a discipline. I hope the reader sees the importance of exploring other disciplines, especially when writing history. So much can be taken from other disciplines to add to historical writing. **Historical Sociology is a discipline that focuses on change in societies and allows the scholar to understand the historical reasoning behind societal change.**
 
