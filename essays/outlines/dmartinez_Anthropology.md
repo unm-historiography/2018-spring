@@ -8,8 +8,21 @@ Desiree' Martinez
 -    After World War II historians developed a new methodology of understanding history, Annales, which relied on empirical evidence and used cultural material as evidence associated with Anthropology to understand societies.   
 - "while historians charted the rise of nations, anthropologist traced the cultural and social evolution of mankind" (Houses p.172)
 - Where Marxism emphasised class disparities anthropology sought to, "redirect historians' attention away from the public, political sphere of human action towards private, daily life, by rediscovering old sources, including oral history and tradition." (Houses, p. 174)
-- _Sir Edward Burnett Tylor_ (1890's) "the founder of academic anthropology" 
+
+- **Sir Edward Burnett Tylor** (1890's) "the founder of academic anthropology" =single history = "The past is continually needed to explain the present, and the whole to explain the part." evolution to "civilization"
+
 -- defined Culture: "taken in its wide ethnographic sense is that complex whole which includes knowledge, belief, art, morals, law, custom and any other capabilities and habits aquired bty man as a member of society." (Houses, p. 172)
+
+-- "History, again, is an agent powerful and becoming more powerful, in shaping men's minds, and through their minds their actions in the world; now one of the most prominent faults of historians is that, through want of familiarity with the principles of myth-devlopment, they cannot apply systematically to ancient legend the appropriate tests for seperating chronicle from myth, but with few exceptions are apt to treat the mingled mass of tradition partly with undiscriminating credulity and partly with undiscriminating scepticism." (p.447)
+
+-- "It is an indispensable qualification of the true historian that he shall be able to look dispassionately on myth as a natural and regular product of the human mind, acting on appropriate facts in a manner suited to the intellectual state of the people producing it, and that he shall treat it as an accretion to be deducted from professed history, whenever it is recognized by the tests of being decidedly against evidence as fact, and at the same time clearly explicable as myth." (p.448)
+
+-- "History records for our instruction, how out of the midst of this splendid and honoured creed there were evolved the germs of the new philosophy. Led by minnter insight and stricter reason, thoughtful Greeks began the piecemeal supersession of the archaic scheme, and set in movement the transformation of animistic into physical science, which thence pervaded the whole cultured world." (p. 207)
+
+-- ** Truth vs. Believe
+
+-- ** "The historian and the ethnographer must be called upon to show the hereditary standing of each opinion and practice, and their enquiry must go back as far as antiquity or savergery can show a vestige, for there seems no human thought so primitive as to have lost its bearing on our own thought, nor so ancient as to have broken its connexion with our own life." (p. 452)
+
 - **Franz Boas** (1890's) "Father of American (cultural) Anthropology"
 -- "established that race, culture, and language were seperate aspects of human existence" (Houses, p. 173)
 
@@ -32,10 +45,25 @@ Desiree' Martinez
 - _Emile Durkheim_ (1860's) "British (social) anthropology"
 -- "the social group or community took precedence over the individual. Human behaviour is fundementally shaped by the moral, religious and social society in which the individual lives." (Houses, p. 173)
 
+-- **1st Annales**- Marc Bloch and Lucien  (1929)
+
 **B. Annales to Functionalism- 20th Century**
 
-- _Bronisław Kasper Malinowski_
--- "Participant observation" (Houses, p. 172)
+- **Bronisław Kasper Malinowski** (functionalism) =influenced by Durkheim
+
+-- "Participant observation" (Houses, p. 172) work of myth= "Open air anthropology, as opposed to hearsay note-taking, is hard work, but it is also great fun. Only such anthropology can give us the all-round vision of primitive man and of primitive culture. Such anthropology shows us, as regards myth, that far from being an idle mental pursuit, it is a vital ingredient of practical relation to the environment." (p. 148)
+
+-- "The Romantic culture which Malinowski inherited in late nineteenthand early twentieth-century Polish society had to some degree overcome the Enlightenment's disparagement of myths as simpleminded false stories." (p. xiv)
+
+--" Whether we call such a science Sociology or Social Psychology, or Philosophy of History or Politics, is of no great importance as long as we agree that it must be based on a purely empirical basis and that it must aim at real utility in the conduct of affairs." (p.80)
+
+-- "A systematic exposition of this attitude— based on all available material scientifically formulated— will be the Sociology of the Future— The New Humanism— and, indeed, much of the Sociology of to-day has already fully justified the hopes and anticipations in this direction" (p.81) = "Now if this New Humanism is to have sufficient force to shape human ideals and even to influence policies, it must be based on a really scientific knowledge of human nature. This knowledge must, therefore, be empirical."
+
+-- "The only knowledge of past history we possess, we owe to the testimony of chroniclers and historians of past ages, whose views on social matters and human nature widely differ from our own. They were entirely unfit to act as our vicarious observers, except in certain aspects of history, aspects which the most modern historian tends to consider as rather superficial." (p.81)
+
+-- ** "The field ethnologist, who studies the various types of civilization under varied conditions, is the only sociologist who can, on a large scale, do anything comparable to an experiment in social matters. He can observe the differences in human mental constitution and human social behaviour under the various forms of physical and mental environment, as divergent as physical and mental nature will allow." (p. 82)
+
+-- ** "The most important final step was taken when modern anthropology became a science in the achievements of Tylor, Robertson Smith, the Volkerpsychologen, Bastian, Morgan and Lubbock, and in its most modern development with the great works of Sir James Frazer. This new development, the placing of sociological and historical theory on the broadest basis of comprehensive comparison of all civilization, including those of the savage races, may be called without too much pretension the New Humanism." (p.82)
 
 - **Alfred Radcliffe-Brown_  and _Sir Edward Evan Evans-Pritchard** (British Anthropology)
 -- " MARETT LECTURE OF I950, Professor Evans-Pritchard told us that 'social anthro- pology is a kind of historiography, and therefore ultimately of philosophy or art, . . . that it studies societies as moral systems and not as natural systems, that it is interested in design rather than in process, and that it therefore seeks patterns and not scientific laws, and interprets rather than expains." In response Radcliffe-Brown states, "In the primitive societies that are studied by social anthropology there are no historical records' (Radcliffe-Brown I952, P. 3); and 'confusions amongst anthropologists result from the failure to distinguish between historical explanation of institutions and theoretical understanding." (p.73)
@@ -60,8 +88,16 @@ Desiree' Martinez
 
 -- Brown= "nction as 'the contribution which a partial activity makes to the total activity of which it is part." (p. 82)
 
-- _Clifford Geertz_ 
+- **Clifford Geertz** 
 -- "interpretive archaeology" 
+
+-- "Anthropologist complain that the historian's reliance on written documents leaves us prey to elitist accounts and literary conventionalisms. Historians complain that the anthropologist's reliance on oral testimony leaves us prey to invented tradition and the frailties of memory." (p322)
+
+-- "The first part, constructing the image, the accounting for its transcience. Anthropology gets the tableau. History gets the drama; Anthropology the forms, History the causes." (p. 326)
+
+-- ** "the conjoining of History and Anthropology is not a metter of fusing two academic fields into a new Something-or-Other, but of redefining them in terms of one another by managing their relations within the bounds of a particular study: textual tactics.That sorting things into what moves and what moves it, what victimizes and what is victimized, or what happened and what we can say about what happened." (p. 329)
+
+-- "the anthropological desire to see how things fit together sits uneasily with the historical desire to see how they are brought about." (p. 332)
 
 **C. Ethnohistory- 20th Century from 1950**
 
