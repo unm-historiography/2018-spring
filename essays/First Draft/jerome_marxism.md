@@ -24,20 +24,31 @@ Why was Marxism successful in some countries but not others? As mentioned, Marxi
 References:
 
 -Kendrick, B. B. “THE PROBLEM OF HISTORICAL INTERPRETATION.” The North Carolina Historical Review 2, no. 1 (1925): 19–29.
+
 -Korsch, Karl, and Otto Koester. “The Crisis of Marxism.” New German Critique, no. 3 (1974): 7. https://doi.org/10.2307/487734.
+
 -Lenin, Vladimir. What Is to Be Done? [Burning Questions of Our Movement]. Martino Fine Books, 2013.
+
 -Marx, Karl, Frederick Engles. The Communist Manifesto. International Publishers Co., 2014.
+
 -Spargo, John. “The Influence of Karl Marx on Contemporary Socialism.” American Journal of Sociology 16, no. 1 (1910): 21–40.
+
 -Stalin, Joseph. Marxism and the National Question. CreateSpace Independent Publishing Platform, 2013.
+
 -Thompson, E.B., "Exploitation", The Houses of History: A Critical Reader in Twentieth-Century History and Theory. New York: New York University Press, 1999., 1999. 44-58.
+
 -Vandervelde, Emile. “Ten Years of Socialism in Europe.” Foreign Affairs 3, no. 4 (1925): 556. https://doi.org/10.2307/20028399.
+
 -Watkins, Gordon S. “Revolutionary Communism in the United States.” American Political Science Review 14, no. 01 (February 1920): 14–33. https://doi.org/10.2307/1945723.
 
 Recommended Readings:
 
 -Simkhovitch, Vladimir G. “Marxism Versus Socialism. II.” Political Science Quarterly 23, no. 4 (December 1908): 652. https://doi.org/10.2307/2140867.
+
 -———. “Marxism Versus Socialism. III.” Political Science Quarterly 24, no. 2 (June 1909): 236. https://doi.org/10.2307/2140818.
+
 -Vladimir G. Simkhovitch. “Marxism Versus Socialism. I.” The Academy of Political Science, Political Science Quarterly, Vol. 23, no. No. 4 (June 1908): 652–89. https://doi.org/10.2307/2141322.
+
 -Vladimir Zenzinov. “The Bolsheviks and the Peasant.” Council on Foreign Relations, Foreign Relations, 4, no. 1 (October 1925): 134–43. https://doi.org/10.2307/20028428.
 
 
