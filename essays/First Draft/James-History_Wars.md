@@ -26,7 +26,7 @@ Gast, John. 1873. “American Progress.” Still image. Library of Congress. 187
 
 Dunbar-Ortiz, Roxanne. 2014. An Indigenous Peoples’ History of the United States. ReVisioning American History. Boston : Beacon Press, [2014].
 
-Gage, Beverly. 2017. “An Intellectual Historian Argues His Case Against Identity Politics.” The New York Times, August 15, 2017, sec. Book Review. https://www.nytimes.com/2017/08/15/books/review/mark-lilla-the-once-and-future-liberal.html.
+Gage, Beverly. 2017. “An Intellectual Historian Argues His Case Against Identity Politics.” The New York Times, sec. Book Review. April 17, 2018. https://www.nytimes.com/2017/08/15/books/review/mark-lilla-the-once-and-future-liberal.html.
 
 Popkin, Jeremy D. 2016. From Herodotus to H-Net : The Story of Historiography. New York ; Oxford : Oxford University Press, [2016].
 
@@ -56,3 +56,4 @@ Casey, John. 2000. “Why, 60 Years on, Zeros Are Bombing Pearl Harbour Again; A
 
 Norton, Elizabeth. 2013. “Writing Popular History: Comfortable, Unchallenging Nostalgia-Fodder?” College Source. History Matters. History Brought Alive by the University of Sheffield. August 28, 2013. www.historymatters.group.shef.ac.uk/popular-vs-academic-history/.
 
+Lilla, Mark. 2016. “The End of Identity Liberalism.” The New York Times. Sunday Review: Opinion. April 18, 2018. https://www.nytimes.com/2016/11/20/opinion/sunday/the-end-of-identity-liberalism.html
