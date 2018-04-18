@@ -41,6 +41,7 @@ Talens, Jenaro, and Santos Zunzunegui. “Toward a ‘True’ History of Cinema:
 Toplin, Robert Brent, and Jason Eudy. “The Historian Encounters Film: A Historiography.” OAH Magazine of History 16, no. 4 (2002): 7–12.
 
 Toplin, Robert Brent. “From the Editor: Invigorating History: Using Film in the Classroom.” OAH Magazine of History 16, no. 4 (2002): 5–6.
+
 Toplin, Robert Brent, and Jason Eudy. “The Historian Encounters Film: A Historiography.” OAH Magazine of History 16, no. 4 (2002): 7–12.
 
 Wilson, Kristi M., Tomas F. Crowder-Taraborrelli, and Tomas F Crowder-Taraborrelli. Film and Genocide. Wisconsin, UNITED STATES: University of Wisconsin Press, 2012. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=3445214.
