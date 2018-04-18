@@ -33,6 +33,7 @@ Popkin, Jeremy D. 2016. From Herodotus to H-Net : The Story of Historiography.
 Linenthal, Edward, and Tom Engelhardt, eds. 1996. History Wars : The Enola Gay and Other Battles for the American Past. 1st ed. New York: Metropolitan Books. https://eds.b.ebscohost.com/eds/detail/detail?vid=1&sid=a41a50f4-3d27-402e-ad4f-c4935fe977c6%40sessionmgr120&bdata=JnNpdGU9ZWRzLWxpdmUmc2NvcGU9c2l0ZQ%3d%3d#AN=unm.34077658&db=cat05987a.
 
 Guyver, Robert, and Tony Taylor. 2012. History Wars and the Classroom : Global Perspectives. Charlotte, North Carolina: Information Age Publishing. https://eds-a-ebscohost-com.libproxy.unm.edu/eds/detail/detail?nobk=y&vid=4&sid=025c5d45-cf04-40a7-9977-4ec800f8ab8f@sessionmgr4007&bdata=JnNpdGU9ZWRzLWxpdmUmc2NvcGU9c2l0ZQ==#AN=469959&db=nlebk.
+
 Hogeland, William. 2009. Inventing American History. Boston Review Bks. Cambridge : MIT Press, 2009. http://libproxy.unm.edu/login?url=https://search.ebscohost.com/login.aspx?direct=true&db=cat06111a&AN=unm.EBC3339015&site=eds-live&scope=site.
 
 Stephanson, Anders. 1995. Manifest Destiny : American Expansionism and the Empire of Right. [A Critical Issue]. New York : Hill and Wang, 1995.
