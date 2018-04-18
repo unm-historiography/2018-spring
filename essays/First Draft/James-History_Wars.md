@@ -17,3 +17,41 @@ The often lack of separation between popular history and myths has been thorough
 Even though popular history has its faults, its lack of emphasis on objectivity and vigorous research, it provides a valuable benefit to society. An academic historian, David Lowenthal, expressed his support for popular history, specifically “Disneyland’s talking Abraham Lincoln”, stated that “better a misinformed enjoyment of history than none, a lighthearted dalliance with the past than a wholesale rejection of it” (Popkin, 2016, (p. 155)). Lowenthal is correct in his assessment of popular history because is beneficial for the history profession to have a greater audience. While Disneyland’s interpretation of Abraham Lincoln may not be the most critical or in-depth, it gives the general public a broad understanding of one of America’s most important presidents and historical figures. Dangerous aggressive national narratives like the one promoted by Hitler’s Germany should be quickly identified and combatted for the betterment of the world but the history profession should not loose potential consumers because an intellectual elite is upset that a “lighthearted” historical representation is not scholarly enough (Popkin, 2016, (p. 155)). In Southgate’s “What is History For?”, he claims that all history has an agenda and it is unreasonable for a historian to be completely objective and “consider all angles” (Southgate, 2005, (location 356 & 648)). If scholarly historians even admit to academic history’s shortcomings, are scholarly historians being unfair in their criticism of popular history? 
 
 The future of the “History Wars” is one of the most crucial topics in history profession because it is deeply intertwined with other key historical trends and themes (Popkin, 2016, (p. 153)). The concept of “History Wars” expands beyond just distinctions between popular and academic history and which historical method will become more commonly used by future historians. Will Marxist history, objective history, feminist histories, nationalist history and historical sociology become more commonly used in academic curriculums or be taught with greater emphasis in history departments across the globe? Historians have to decide if they are going to compose their historical work for mass audiences with less of an emphasis on objectivity or if that work is made for scholarly purposes. “History Wars” have academic, political and social ramifications on how the public views the past and more importantly which historical narratives will prevail in the future. 
+
+Sources:
+
+Greenberg, Douglas. 1998. “`History Is a Luxury’: Mrs. Thatcher, Mr. Disney, and (Public) History.” Reviews in American History 26 (1): 294.
+
+Gast, John. 1873. “American Progress.” Still image. Library of Congress. 1873. //www.loc.gov/pictures/resource/ppmsca.09855.
+
+Dunbar-Ortiz, Roxanne. 2014. An Indigenous Peoples’ History of the United States. ReVisioning American History. Boston : Beacon Press, [2014].
+
+Gage, Beverly. 2017. “An Intellectual Historian Argues His Case Against Identity Politics.” The New York Times, August 15, 2017, sec. Book Review. https://www.nytimes.com/2017/08/15/books/review/mark-lilla-the-once-and-future-liberal.html.
+
+Popkin, Jeremy D. 2016. From Herodotus to H-Net : The Story of Historiography. New York ; Oxford : Oxford University Press, [2016].
+
+Linenthal, Edward, and Tom Engelhardt, eds. 1996. History Wars : The Enola Gay and Other Battles for the American Past. 1st ed. New York: Metropolitan Books. https://eds.b.ebscohost.com/eds/detail/detail?vid=1&sid=a41a50f4-3d27-402e-ad4f-c4935fe977c6%40sessionmgr120&bdata=JnNpdGU9ZWRzLWxpdmUmc2NvcGU9c2l0ZQ%3d%3d#AN=unm.34077658&db=cat05987a.
+
+Guyver, Robert, and Tony Taylor. 2012. History Wars and the Classroom : Global Perspectives. Charlotte, North Carolina: Information Age Publishing. https://eds-a-ebscohost-com.libproxy.unm.edu/eds/detail/detail?nobk=y&vid=4&sid=025c5d45-cf04-40a7-9977-4ec800f8ab8f@sessionmgr4007&bdata=JnNpdGU9ZWRzLWxpdmUmc2NvcGU9c2l0ZQ==#AN=469959&db=nlebk.
+Hogeland, William. 2009. Inventing American History. Boston Review Bks. Cambridge : MIT Press, 2009. http://libproxy.unm.edu/login?url=https://search.ebscohost.com/login.aspx?direct=true&db=cat06111a&AN=unm.EBC3339015&site=eds-live&scope=site.
+
+Stephanson, Anders. 1995. Manifest Destiny : American Expansionism and the Empire of Right. [A Critical Issue]. New York : Hill and Wang, 1995.
+
+McNeill, William H. 1986. “Mythistory, or Truth, Myth, History, and Historians.” The American Historical Review 91 (1): 1–10. https://doi.org/10.2307/1867232.
+
+Munslow, Alun. 2007. Narrative and History. Theory and History. Basingstoke : Palgrave Macmillan, 2007.
+
+The Harry S. Truman Library and Museum. n.d. “Presidential Years: Decision to Drop the Bomb.” Presidential Library’s Website. Truman Library. Accessed April 18, 2018. https://www.trumanlibrary.org/hst/d.htm.
+
+Strauss, Gerald. 1991. “The Dilemma of Popular History.” Past & Present, no. 132: 130–49.
+
+Lowenthal, David. 1985. The Past Is a Foreign Country. Cambridge [Cambridgeshire] ; New York : Cambridge University Press, 1985.
+
+Engels, Karen. 2017. “The Story of Us.” Educational Leadership 75 (3): 38–42.
+
+Southgate, Beverley. 2005. What Is History For? 1st ed. London and New York: Routledge.
+
+Casey, John. 2000. “Why, 60 Years on, Zeros Are Bombing Pearl Harbour Again; As Disney Recreates the Infamous Raid by the Japanese for a Film Dubbed ‘the New Titanic’, One Leading Academic Attacks Hollywood’s Treatment of History.” Mail on Sunday (London, England), 2000, Solo Syndication edition.
+
+Norton, Elizabeth. 2013. “Writing Popular History: Comfortable, Unchallenging Nostalgia-Fodder?” College Source. History Matters. History Brought Alive by the University of Sheffield. August 28, 2013. www.historymatters.group.shef.ac.uk/popular-vs-academic-history/.
+
