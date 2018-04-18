@@ -1,4 +1,4 @@
-***History Wars: The Battle for the Future of History***
+# ***History Wars: The Battle for the Future of History***
 
 **As history became more popular among general public in the late 20th century, the conflict between popular and academic history became a crucial debate for the profession of history.** (Popkin, 2016, (p. 153). Historians faced a dilemma: to write a popular or a scholarly history. A work of popular history is written for the purpose of mass audiences while academic or scholarly history is made through objective vigorous scholarly research. While historians who wrote popular histories were more likely to make money off their works, “popular history is often looked down upon by more academically minded historians” (Norton, 2013). **The debate between popular and scholarly history will have repercussions on the future of historical studies because “he who controls the past controls the future. He who controls the present controls the past”** (Popkin, 2016, (p. 113). 
 
