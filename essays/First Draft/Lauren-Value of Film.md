@@ -20,7 +20,7 @@ This does not negate the use of historical dramas for historians so much as shap
 
 The general public will always be interested in historical films, photography, and documentaries. Postmodernist arguments about the potential reliability of footage is pointless when it disregards the public’s view of history. History through film will never and can never be one hundred percent accurate (though neither can textual history), but that does not mean that all of the historic films we possess are staged or doctored either. What matters is the narrative and immersion film provides. These stories help us remember and understand the past in a much more visceral, immediate way than texts can achieve. Historical film and movies should still absolutely be subjected to rigorous analysis. However, to say that film is worthless as a historical medium due to its potential or realized inaccuracies is to miss the point of how humanity views itself. Humanity uses the study of history to define and understand its existence, to preserve and honor the memory of those long dead. History lets us believe that our lives and accomplishments are not meaningless and allows us to condemn atrocities against one another. History is a narrative, it is a story of the past. History through film is just one more way to let the stories of the past be remembered and understood for the our present environment.
 
-**ources:**
+**Sources:**
 
 “(5) Five Came Back Trailer: Netflix WWII Documentary - YouTube.” Accessed April 9, 2018. https://www.youtube.com/watch?v=KmQvEVeGj5c.
 
