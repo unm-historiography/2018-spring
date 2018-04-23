@@ -27,7 +27,7 @@ Not only have women struggled to find recognition in the profession (outside of 
 
 Overall, women’s history and gender history has experienced a growth of subject matter, has expanded its representation of society and included many more marginalized groups than had been considered in its creation. The field still continues to expand to other historical theories and methodologies and has strong roots in its feminist background. In time, not only will women be written back into the canon of history, but other marginalized communities of people. Expanding the scope of history of whom should be included in our historical canon should not be filtered or censored, but encouraged and embraced. Notable female historians to further your research into this field include: Bonnie Smith, Judith Walker, Gerda Lerner, Joan Wallach Scott, Judith Walkowitz, and Natalie Zemon Davis.
 
-##### Bibliography
+#### Bibliography
 
 Foucault, Michel. 1988. The History of Sexuality. 1st Vintage books ed. New York: Vintage Books.
 
@@ -51,7 +51,7 @@ Walker, Rebecca. 1993. “Becoming the Third Wave.” Ms. Magazine, no. Spring 2
 
 Zheng, Tiantian. 2009. Red Lights: The Lives of Sex Workers in Postsocialist China. Minneapolis: University of Minneapolis.
 
-##### Additional Reading
+#### Additional Reading
 
 Arbabzadah, Nushin. 2017. “Women and Religious Patronage in the Timurid Empire.” In Afghanistan’s Islam, 56–70. From Conversion to the Taliban. University of California Press. http://www.jstor.org/stable/10.1525/j.ctt1kc6k3q.8.
 
@@ -73,22 +73,43 @@ Coletti, Theresa. 2013. “‘Did Women Have a Renaissance?’ A Medievalist Rea
 Connell, Raewyn. 2012. “Transsexual Women and Feminist Thought: Toward New Understanding and New Politics.” Signs 37 (4): 857–81. https://doi.org/10.1086/664478.
 
 De Nicola, Bruno, ed. 2017. “Women and the Economy of the Mongol Empire.” In Women in Mongol Iran, 130–81. The Khatuns, 1206-1335. Edinburgh University Press. http://www.jstor.org/stable/10.3366/j.ctt1g09twn.11.
+
 Dijk, Suzan van, Anke Gilleir, and Alicia C. Montoya. 2008. “Before NEWW ‘(New Approaches to European Women’s Writing)’: Prolegomena to the Launching of an International Project.” Tulsa Studies in Women’s Literature 27 (1): 151–57. https://doi.org/10.2307/20455356.
+
 Earle, Jonathan H. 2000. “‘Peculiarly Woman’s Cause’: Feminism, Race, and the Struggle for Equality.” Edited by Julie Roy Jeffrey and Louise Michele Newman. Reviews in American History 28 (2): 223–29.
+
 Filipowicz, Halina. 2014. “‘Am I That Name?’ Feminism, Feminist Criticism, and Gender Studies.” The Polish Review 59 (1): 3–15. https://doi.org/10.5406/polishreview.59.1.0003.
+
 Garber, Linda. 2005. “Where in the World Are the Lesbians?” Journal of the History of Sexuality 14 (1/2): 28–50.
+
 Gasman, Marybeth. 2007. “Swept under the Rug? A Historiography of Gender and Black Colleges.” American Educational Research Journal 44 (4): 760–805.
+
 Gustafson, Melanie. 2005. “The Historiography of Gendered Political Cultures.” OAH Magazine of History 19 (2): 10–13.
+
 Matthews, Shelly. 2001. “Thinking of Thecla: Issues in Feminist Historiography.” Journal of Feminist Studies in Religion 17 (2): 39–55.
+
 McCann, Hannah. 2016. “Epistemology of the Subject: Queer Theory’s Challenge to Feminist Sociology.” Women’s Studies Quarterly 44 (3/4): 224–43.
+
 Nair, Janaki. 2008. “The Troubled Relationship of Feminism and History.” Economic and Political Weekly 43 (43): 57–65.
+
 Nevitt, Marcus. 2006. Women and the Pamphlet Culture of Revolutionary England, 1640-1660. Aldershot, Hants, England; Burlington, VT: Ashgate.
+
 Orr, Catherine M., and Diane Lichtenstein. 2004. “The Politics of Feminist Locations: A Materialist Analysis of Women’s Studies.” NWSA Journal 16 (3): 1–17.
+
 Ramírez, Horacio N. Roque. 2003. “‘That’s My Place!’: Negotiating Racial, Sexual, and Gender Politics in San Francisco’s Gay Latino Alliance, 1975-1983.” Journal of the History of Sexuality 12 (2): 224–58.
+
 Scharff, Virginia, James P. Ronda, John Mack Faragher, David G. Gutiérrez, Kathleen Underwood, and María E. Montoya. 2000. “Claims and Prospects of Western History: A Roundtable.” The Western Historical Quarterly 31 (1): 25–46. https://doi.org/10.2307/971244.
+
 Smith, Bonnie G. 2010. “Women’s History: A Retrospective from the United States.” Signs 35 (3): 723–47. https://doi.org/10.1086/648517.
+
 Thompson, Becky. 2002. “Multiracial Feminism: Recasting the Chronology of Second Wave Feminism.” Feminist Studies 28 (2): 337–60. https://doi.org/10.2307/3178747.
+
 Traister, Bryce. 2000. “Academic Viagra: The Rise of American Masculinity Studies.” American Quarterly 52 (2): 274–304.
+
 Vicinus, Martha. 2012. “The History of Lesbian History.” Feminist Studies 38 (3): 566–96.
+
 White, Deborah G. 2008. Telling Histories: Black Women Historians in the Ivory Tower. Chapel Hill: University of North Carolina Press. http://www.aspresolver.com/aspresolver.asp?BLWW;1003093534.
+
 Wiegman, Robyn. 2000. “Feminism’s Apocalyptic Futures.” New Literary History 31 (4): 805–25.
+
+(While there are a lot of additional reading sources I wanted to include them in some way. They were useful for my analysis but I didn't actually use/quote most of them outside of viewing trends.)
