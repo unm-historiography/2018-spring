@@ -26,8 +26,8 @@ While women’s history and gender history has made huge strides since 2000, the
 Not only have women struggled to find recognition in the profession (outside of feminism), but women’s history has struggled to find its place in the historical record. Jeremy Popkin explains in his book, _From Herodotus to H-Net_, “women in history experienced considerable frustration and often outright anger as they pushed to expand their career opportunities and gain recognition with the profession” (Popkin, Jeremy. 2016. 144). Martina Kessle further explains “"Women wrote themselves back into the profession, they often did not succeed in writing themselves back into the [national] canon" (Lindner, Ulrike. 2009. 314). Women are more able to participate in the historical profession, while still often being labeled feminist regardless of its methods or theory, and yet women as significant historical figures has yet to come to fruition.
 
 Overall, women’s history and gender history has experienced a growth of subject matter, has expanded its representation of society and included many more marginalized groups than had been considered in its creation. The field still continues to expand to other historical theories and methodologies and has strong roots in its feminist background. In time, not only will women be written back into the canon of history, but other marginalized communities of people. Expanding the scope of history of whom should be included in our historical canon should not be filtered or censored, but encouraged and embraced. Notable female historians to further your research into this field include: Bonnie Smith, Judith Walker, Gerda Lerner, Joan Wallach Scott, Judith Walkowitz, and Natalie Zemon Davis.
-
-#####Bibliography
+
+##### Bibliography
 
 Foucault, Michel. 1988. The History of Sexuality. 1st Vintage books ed. New York: Vintage Books.
 
@@ -51,7 +51,7 @@ Walker, Rebecca. 1993. “Becoming the Third Wave.” Ms. Magazine, no. Spring 2
 
 Zheng, Tiantian. 2009. Red Lights: The Lives of Sex Workers in Postsocialist China. Minneapolis: University of Minneapolis.
 
-#####Additional Reading
+##### Additional Reading
 
 Arbabzadah, Nushin. 2017. “Women and Religious Patronage in the Timurid Empire.” In Afghanistan’s Islam, 56–70. From Conversion to the Taliban. University of California Press. http://www.jstor.org/stable/10.1525/j.ctt1kc6k3q.8.
 
