@@ -27,3 +27,31 @@ His main theme within *The Muqaddima* is the concept of *'aṣabiyyah* or group 
 He has been called "the last Greek and the first Annaliste Historian" because of this large introduction, in which he "used the...assumptions of this rationalist tradition" (Dale 2006, p. 431). The way in which this was implemented within *The Muqaddimah* was by Khaldūn simply stating that "history is--or should be--rooted in wisdom or philosophy" and that the past must be analyzed, rather than reported. This was to be done "rationally... using Greco-Islamic logical methodologies." (Dale 2006, p. 433). The introduction alone contains his "philosophic ideas, with regareds to human society, history and civilization", so it has been recognized as Ibn Khaldūn's "thoughts on philosophy of history, historiography and sociology" (Ahmad 2017, p. 58). As stated earlier, the philosophy of history is deeply embedded in civilization, and therefore ‘aṣabiyyah is deeply embedded within Khaldūn's philosophy. 
 
 These three Islamic historians were huge testaments of their time and their environment. Remarkably, their works have lasted to this day. The historical significance of their works are not limited to just the frames in which they worked, but the way they were written. al-Ṭabarī's manipulation of his sources to fit the particular narrative he wanted to tell is a neverceasing fact within the history of writing history. This was not a new phenomena; what is new is the utilization of a thematic narrative in which *all three* of these authors encompass. This is the brilliance of their contributions to Middle Eastern history; the historical works of al-Ṭabarī and ibn al-Athīr both formed a narrative approach to Islamic history. The rationality behind ibn Khaldūn's understanding of These frames created by the three authors here remain an example and even a reminder (tazkirah) to learn from in our future historical endeavors. 
+
+**Works Cited**
+
+Ahmad, Z. (2017). *A 14th Century Critique of Greek Philosophy: The Case of Ibn Khaldun*. Journal of Historical Sociology, 30(1), 57–66. 
+
+Çaksu, A. (2017). *Ibn Khaldun and Philosophy: Causality in History.* Journal of Historical Sociology, 30(1), 27–42.
+
+Dale, S. F. (2006). *Ibn Khaldun: The Last Greek and the First Annaliste Historian.* International Journal of Middle East Studies, 38(3), 431-451.
+
+Gabrieli, F. (1979). *Arabic Historiography.* Islamic Studies, 18(2), 81–95.
+
+Gibb, H. A. R. (1935). *Notes on the Arabic Materials for the History of the Early Crusades.* Bulletin of the School of Oriental Studies, University of London, 7. 
+
+Hillenbrand, C. (2008). *Reviewed Work(s): The Chronicle of Ibn al-Athīr for the Crusading Period from “Al-Kāmil fiʾl-taʾrīkh*,” Part 1: The Years 491-541/1097-1146: The Coming of the Franks and the Muslim Response by Ibn al-Athīr and D. S. Richards. Speculum, 83(3), 712–713.
+
+Judd, S. C. (2005). *Narratives And Character Development: Al-Tabarì And Al-Balàdhurì On Late Umayyad History* (p. 18).
+
+Kamaruzaman, A. F., Jamaludin, N., & Faathin Mohd Fadzil, A. (2015). *Ibn Al-Athir’s Philosophy of History in Al-Kamil Fi Al-Tarikh*. Asian Social Science, 11(23). 
+
+Keshk, K. (2009). *How to Frame History*, 381–399.
+
+Mallett, A. (2012). *Islamic Historians of the Ayyūbid Era and Muslim Rulers from the Early Crusading Period: A Study in the Use of History*. Al-Masāq, 24(3), 241–252. 
+
+Mårtensson, U. (2005). *Discourse and Historical Analysis: The Case of al-Ṭabarī’s History of the Messengers and the Kings*. Journal of Islamic Studies, 16(3), 287–331. 
+
+Osman, G. (2001). *Oral vs. Written Transmission: The Case of Ṭabarī and Ibn Saʿd*, 66–80.
+
+White, A. (2009). *Islamic Approach to Studying History*, 17(2), 25.
