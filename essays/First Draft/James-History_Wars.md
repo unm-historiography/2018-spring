@@ -59,3 +59,11 @@ Casey, John. 2000. “Why, 60 Years on, Zeros Are Bombing Pearl Harbour Again; A
 Norton, Elizabeth. 2013. “Writing Popular History: Comfortable, Unchallenging Nostalgia-Fodder?” College Source. History Matters. History Brought Alive by the University of Sheffield. August 28, 2013. www.historymatters.group.shef.ac.uk/popular-vs-academic-history/.
 
 Lilla, Mark. 2016. “The End of Identity Liberalism.” The New York Times. Sunday Review: Opinion. April 18, 2018. https://www.nytimes.com/2016/11/20/opinion/sunday/the-end-of-identity-liberalism.html
+
+Haydn, Terry. 2017. “The Impact of Social Media on History Education: A View from England.” Yesterday and Today, no. 17 (July): 23–37.
+
+Foucault, Michel. 1989. The Archeology of Knowledge. London: Routledge.
+
+Malik, Kenan. 2018. “Fake News Has a Long History. Beware the State Being Keeper of ‘the Truth’ | Kenan Malik.” The Guardian. April 22, 2018. http://www.theguardian.com/commentisfree/2018/feb/11/fake-news-long-history-beware-state-involvement.
+
+Lardieri, Alexa. 2017. “Fake News, Real Impact.” US News & World Report. April 22, 2018.  https://www.usnews.com/news/national-news/articles/2017-09-20/team-lewis-study-examines-how-fake-news-impacts-public.
