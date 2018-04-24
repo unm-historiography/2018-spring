@@ -28,7 +28,7 @@ He has been called "the last Greek and the first Annaliste Historian" because of
 
 These three Islamic historians were huge testaments of their time and their environment. Remarkably, their works have lasted to this day. The historical significance of their works are not limited to just the frames in which they worked, but the way they were written. al-Ṭabarī's manipulation of his sources to fit the particular narrative he wanted to tell is a neverceasing fact within the history of writing history. This was not a new phenomena; what is new is the utilization of a thematic narrative in which *all three* of these authors encompass. This is the brilliance of their contributions to Middle Eastern history; the historical works of al-Ṭabarī and ibn al-Athīr both formed a narrative approach to Islamic history. The rationality behind ibn Khaldūn's understanding of These frames created by the three authors here remain an example and even a reminder (tazkirah) to learn from in our future historical endeavors.
 
-*Works Cited*
+**Works Cited**
 
 Ahmad, Z. (2017). *A 14th Century Critique of Greek Philosophy: The Case of Ibn Khaldun*. Journal of Historical Sociology, 30(1), 57–66.
 
