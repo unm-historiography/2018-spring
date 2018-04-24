@@ -22,14 +22,25 @@ Regardless of the chosen methods or intent of writing a postcolonial narrative, 
 **Sources:**
 
 Armitage, David. 2007. “From Colonial History to Postcolonial History: A Turn Too Far?” _The William and Mary Quarterly_ 64 (2): 251–54.
+
 Ashcroft, Bill, Gareth Griffiths, and Helen Tiffin. 1994. _Post-Colonial Studies Reader_. London, UNKNOWN: Routledge. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=3060300.
+
 Chakrabarty, Dipesh. 1992. “Postcoloniality and the Artifice of History: Who Speaks for ‘Indian’ Pasts?” _Representations_, no. 37: 1–26. https://doi.org/10.2307/2928652.
+
 Chatterjee, Partha. 1993. _The Nation and Its Fragments : Colonial and Postcolonial Histories_. Princeton Studies in Culture/Power/History. Princeton, N.J. : Princeton University Press, ©1993. http://libproxy.unm.edu/login?url=https://search.ebscohost.com/login.aspx?direct=true&db=cat05987a&AN=unm.27934680&site=eds-live&scope=site.
+
 Dasgupta, Subrata. 2014. “Science Studies ‘sans’ Science: Two Cautionary Postcolonial Tales.” _Social Scientist_ 42 (5/6): 43–61.
+
 Dirlik, Arif. 1997. _The Postcolonial Aura: Third World Criticism in the Age of Global Capitalism_.
+
 Green, Anna, and Kathleen Troup. 1999. _The Houses of History : A Critical Reader in Twentieth-Century History and Theory_. New York : New York University Press, 1999.
+
 Krishna, Sankaran. 2008. _Globalization and Postcolonialism: Hegemony and Resistance in the Twenty-First Century_. Blue Ridge Summit, UNITED STATES: Rowman & Littlefield Publishers. http://ebookcentral.proquest.com/lib/unm/detail.action?docID=500871.
+
 McClintock, Anne. 1992. “The Angel of Progress: Pitfalls of the Term ‘Post-Colonialism.’” _Social Text_, no. 31/32: 84. https://doi.org/10.2307/466219.
+
 “Postcoloniality and the Two Sites of Historicity.” 2017. _History and Theory_ 56 (1): 38–53.
+
 Spivak, Gayatri Chakravorty, and Sarah Harasym. 1990. _The Post-Colonial Critic : Interviews, Strategies, Dialogues_. New York : Routledge, ©1990. http://libproxy.unm.edu/login?url=https://search.ebscohost.com/login.aspx?direct=true&db=cat05987a&AN=unm.22192413&site=eds-live&scope=site.
+
 “Writing Postcolonial History / Rochona Majumdar.” n.d.
