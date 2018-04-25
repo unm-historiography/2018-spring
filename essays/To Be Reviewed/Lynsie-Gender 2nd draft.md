@@ -109,5 +109,3 @@ Vicinus, Martha. 2012. “The History of Lesbian History.” Feminist Studies 38
 White, Deborah G. 2008. Telling Histories: Black Women Historians in the Ivory Tower. Chapel Hill: University of North Carolina Press. http://www.aspresolver.com/aspresolver.asp?BLWW;1003093534.
 
 Wiegman, Robyn. 2000. “Feminism’s Apocalyptic Futures.” New Literary History 31 (4): 805–25.
-
-(While there are a lot of additional reading sources I wanted to include them in some way. They were useful for my analysis but I didn't actually use/quote most of them outside of viewing trends.)
