@@ -21,6 +21,7 @@ Marxism was certainly dramatic movement for its time, it could not have occurred
 
 
 References
+
 -Green, Anna, and Kathleen Troup. The Houses of History : A Critical Reader in Twentieth-	Century History and Theory. New York : New York University Press, 1999., 1999. 277-278.
 
 -Kendrick, B. B. “THE PROBLEM OF HISTORICAL INTERPRETATION.” The North Carolina Historical Review 2, no. 1 (1925): 19–29.
@@ -44,6 +45,7 @@ References
 -Watkins, Gordon S. “Revolutionary Communism in the United States.” American Political Science Review 14, no. 01 (February 1920): 14–33. https://doi.org/10.2307/1945723.
 
 Recommended Readings
+
 -Simkhovitch, Vladimir G. “Marxism Versus Socialism. II.” Political Science Quarterly 23, no. 4 (December 1908): 652. https://doi.org/10.2307/2140867.
 
 -———. “Marxism Versus Socialism. III.” Political Science Quarterly 24, no. 2 (June 1909): 236. https://doi.org/10.2307/2140818.
