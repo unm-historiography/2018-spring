@@ -40,7 +40,7 @@ power occurred within society and even became ritualized to reinforce it. The
 combining of these two theories and creating a system in which multiple theories
 and ideas serve to compliment and expand on one another would be the basis of
 the Annales School and its mission to create a *Total History*. As H.L.
-Wesseling put it**, “the achievement of the Annales revolution has been that
+Wesseling put it, **“the achievement of the Annales revolution has been that
 they exposed this anachronism and introduced the history of man instead of that
 of the state.”**(Wesseling 1978)
 
