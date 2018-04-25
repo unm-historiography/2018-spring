@@ -4,11 +4,11 @@ HIST 491
 
 04/18/2018
 
-**The Annales School**
+# The Annales School
 
 Some of the most innovative and influential historiographic changes in the
-twentieth-century came from a group of French historians known as the Annales
-School. The methods they introduced challenged traditional historical focus from
+twentieth-century came from a group of French historians known as the *Annales
+School*. The methods they introduced challenged traditional historical focus from
 prominent and powerful individuals and shed light on often overlooked or
 dismissed populations and cultures. To achieve this, they developed
 methodologies that examined evidence of broader beliefs, ideas, and attitudes of
@@ -40,7 +40,7 @@ power occurred within society and even became ritualized to reinforce it. The
 combining of these two theories and creating a system in which multiple theories
 and ideas serve to compliment and expand on one another would be the basis of
 the Annales School and its mission to create a *Total History*. As H.L.
-Wesseling put it**, “the achievement of the Annales revolution has been that
+Wesseling put it, **“the achievement of the Annales revolution has been that
 they exposed this anachronism and introduced the history of man instead of that
 of the state.”**(Wesseling 1978)
 
