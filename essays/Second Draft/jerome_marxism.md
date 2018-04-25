@@ -1,4 +1,4 @@
-###Marxism and its Historical Significance
+Marxism and its Historical Significance
 
 Jerome T. Mondragon
 
