@@ -1,4 +1,4 @@
-Marxism and its Historical Significance
+###Marxism and its Historical Significance
 Jerome T. Mondragon
 
 With the Age of Enlightenment had just appeared in Europe, the Western world was now entering a new age of science, art, and history. It was a time when history was exclusively focused on the accomplishments of religious and royal authority figures (Popkins, 57). It was also during this time when industrialization and international dependency began to emerge. Old methods of industry were being replaced with the mass production of goods, a growing economy, and the creation of a new capitalist market. The unfortunate consequence with the rise of industry was the division of classes. As these differences became apparent, the interpretation of history drastically changed. Thus, Marxist movement emerged in the 1800s as a means to represent the disadvantaged class (Marx and Engles, 20). Historians now focused on the social and economic disparities that existed.
