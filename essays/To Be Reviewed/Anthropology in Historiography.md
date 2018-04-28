@@ -12,28 +12,4 @@ The Functionalist approach to history suggested, "that all aspects of society we
 
 Ethnohistory was defined by leading archaeologist and ethnologist W. C. Sturtevant as, "the study of the history of the peoples normally studied by anthropologist." (Houses, p.175) Hence the historian James Axtell formulates that, "Ethnohistory encompasses archaeology, ethnology, history and lingustics, and the source materials available to the enthnohistorian which include folklore, oral tradition, maps, paintings, and artefacts, as well as written sources" (Houses, p. 175)
 
-`
-
-© 2018 GitHub, Inc.
-Terms
-Privacy
-Security
-Status
-Help
-Contact GitHub
-API
-Training
-Shop
-Blog
-About
-Press h to open a hovercard with more details.
-
-
-
-
-
-
-
-
-
-
+FG: This is shaping up very nicely! This is MUCH more focused compared to the outline, and provides a very nice overview and great quotes. What hasn't emerged quite clearly enough is the relationship b/w anthropology and historiography. Can you point to more concrete cases or theorizing or practical examples where historians were deliberately using different methods, writing styles, etc, in historical work? I don't think you need to do anything more with describing anthropology--it's solid as is. So focus on the link to historiography, linking wherever possible to other class essays.
