@@ -155,3 +155,5 @@ Cambridge: Polity, 2015. xvi + 198 pp.
 
 Popkin, Jeremy D. 2016. *From Herodotus to H-Net: The Story of Historiography*.
 New York ; Oxford University Press.
+
+FG: So far this is very clear and provides a nive overview. The areas I would focus improvement on: 1) MORE SPECIFICS--you mention, as you should, the broad changes that the Annales school attempted to bring about in their work--give some specific examples of or quotes from their works whenever possible. 2) LEGACY. You mention the influence was undebatable, but you haven't really made an argument as to exactly what that was. Can you give examples of how work followed their lead? Can you see describe how historiography went in different directions? Do people still directly follow them, or is their influence more indirect now? How did cultural events of the 20th century affect their influence/legacy? 
