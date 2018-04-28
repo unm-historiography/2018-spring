@@ -13,11 +13,16 @@ China has undergone not only large amounts of political turmoil in the past two 
 It is difficult to overstate the importance of the changes that have occurred historically in China over the past two centuries and their subsequent effect on the methods of historiography of China. For a nation whose insular and rich intellectual traditions thrived for thousands of years before undergoing rapid changes, it is a monumental shift in the world’s oldest continuous intellectual tradition. The way in which traditional ideas of Chinese identity and its ancient past mix with state-dictated Marxism, and the influx of new foreign academic ideas, has created a complex and hotly debated new landscape. Chinese historians have always prided themselves on the accuracy and fairness of their methods, so the pressure to do research in this manner and not invalidate state views is one that every historian in modern China must grapple with. Incidents such as the Tiananmen Square massacre have spurred grave concerns over the official positions of the state which casts itself as one who endorses and glorifies class struggle of common people over their government. These incidents of hypocrisy, as well as the continued censorship of official academia, challenge Chinese historians today to be creative in how they critique and shift the practice of a Chinese historiography that rests at a pivotal crossroad.  
 
 Works Cited
+
 Chang, K. C. “Archaeology and Chinese Historiography.” World Archaeology 13, no. 2 (1981): 156–69.
+
 Dirlik, Arif. “Social Formations in Representations of the Past: The Case of ‘Feudalism’ in Twentieth-Century Chinese Historiography.” Review (Fernand Braudel Center) 19, no. 3 (1996): 227–67.
 ———. “The Problem of Class Viewpoint versus Historicism in Chinese Historiography.” Modern China 3, no. 4 (1977): 465–88.
+
 Feuerwerker, Albert. “China’s Modern Economic History in Communist Chinese Historiography.” The China Quarterly, no. 22 (1965): 31–61.
+
 LI, HUAIYIN. “FROM REVOLUTION TO MODERNIZATION: THE PARADIGMATIC TRANSITION IN CHINESE HISTORIOGRAPHY IN THE REFORM ERA.” History and Theory 49, no. 3 (2010): 336–60.
+
 Teng, S. Y. “Chinese Historiography in the Last Fifty Years.” The Far Eastern Quarterly 8, no. 2 (1949): 131–56. https://doi.org/10.2307/2049138.
 
 
