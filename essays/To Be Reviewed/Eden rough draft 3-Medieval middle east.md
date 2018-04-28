@@ -35,6 +35,8 @@ These three Islamic historians were huge testaments of their time and their envi
 
 `The fact that you're mentioning Islamic historiography makes this work highly original and interesting to learn. The writing style is elegant which contributes to the flow and readability of this work. Great use of bolding and Italics to emphasize terms!`
 
+FG: As mentioned in class, you've done a very nice job describing your three case studies. The challenge now as you finish it is to make a very clear argument why a western historiography class (like us) should care about these people. How do they complete the kinds of themes/issues we've studied in western historiography (besides simply being nonwestern?) Was there any influence from them on western historiography? You've well covered their contributions to Islamic history, but that in itself doesn't make them automatically important for understanding historiography generally. SO, be explicit about how they do. For instance, you might suggest how their historiography shows that stuff we talk about in the western context isn't necessarily unique to the western case; and/or you might show how there was nothing inevitable about western historiography give their contributions in another cultural context.
+
 **Works Cited**
 
 Ahmad, Z. (2017). *A 14th Century Critique of Greek Philosophy: The Case of Ibn Khaldun*. Journal of Historical Sociology, 30(1), 57–66.
