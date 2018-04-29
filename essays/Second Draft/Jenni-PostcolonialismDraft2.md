@@ -37,7 +37,7 @@ Regardless of the chosen methods or intent of writing a postcolonial narrative, 
 
 `Writing a "true" postcolonial history is difficult due to previous methods relying more on traditionally Western methods of historiography than on indigenous methods, especially with regards to oral tradition.`
 
-`Elena Farmin: With regards to punctuation, be consistent with your use of hyphens and captial letters. The major issues with your paper are 1.) many of your statements are repetitive, 2.) your main points are too generel and need more specific details and examples, 3.) there is no real conclusion to your essay, and 4.) some of the transitions between your main points (especially in the first half of the essay) are too jarring and need to be much more smooth and connected. That is not to say that you do not have good points and some well-written statements. The good points just need to be developed more and your well-written statements need to be better connected with the rest of your essay.`
+`Elena Farmin: With regards to punctuation, be consistent with your use of hyphens and capital letters. The major issues with your paper are 1.) many of your statements are repetitive, 2.) your main points are too generel and need more specific details and examples, 3.) there is no real conclusion to your essay, and 4.) some of the transitions between your main points (especially in the first half of the essay) are too jarring and need to be much more smooth and connected. That is not to say that you do not have good points and some well-written statements. The good points just need to be developed more and your well-written statements need to be better connected with the rest of your essay.`
 
 **Sources:**
 
