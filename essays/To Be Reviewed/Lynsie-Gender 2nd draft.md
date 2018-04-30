@@ -52,6 +52,8 @@ Overall, women’s history and gender history has experienced a growth of subjec
 
 `I think your essay is very well thought out. I found myself asking questions on information I felt you didn't explain very well. Remember that as a freshman reader I do not know a lot of the terms you throw out. Try to explain the terms and cultural changes you describe as being responsible for transforming the field of history. `
 
+FG: This essay reads very well. For future revisions, focus on what's new and exciting in the 21st century, giving as much detail as you can. While your summary of late 20th century feminist work is important to establish context, it almost crowds out the more recent work and new directions. Obviously you start to outline those in the 2nd half of the essay, but more attention to larger shifts in the field supported by more detail will really solidify the value of your essay as a follow-up to the Emily's essay that will address more of the 20th century. One other point to think about is to explicitly connect recent work with what's come before, besides mentioning that it was important/influential. Can you be more specific with any particular cases (maybe not, but keep looking for opportunities)
+
 #### Bibliography
 
 Foucault, Michel. 1988. The History of Sexuality. 1st Vintage books ed. New York: Vintage Books.
