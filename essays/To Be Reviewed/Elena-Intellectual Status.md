@@ -28,6 +28,8 @@ Then ~~along~~ came a German historian by the name of Leopold von Ranke `[place 
 
 **History itself has had quite an interesting history in terms of how scholars and society have viewed it …** `[don't forget to finish your conclusion.]`
 
+FG: your introduction does a pretty good job of stating you're going to explore intellectual status of history, but i'm not sure your essay really follows through with is. what you certainly do have, though, is an excellent overview of historiographical change. as you revise, constantly relate these changes to the intellectual status of history. as you conclude the essay with ideas about populatization, that's another opportunity to discuss whether popularization reduces the status of it, since it's clearly not the domain of the proper historian anymore. also, remember that a lot of the question about intellectual status also relates to questions of historical authority and how it is established. that theme could be more explicitly developed and add an important level of depth to your essay.
+
 **Bibliography**
 
 Burrow, John. 2007. *A History of Histories*. New York: Alfred A. Knopf.
