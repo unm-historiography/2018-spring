@@ -39,6 +39,8 @@ Marxism was certainly dramatic movement for its time, it could not have occurred
 `Eden's comments: Easy to follow and interesting but just needs clarity in some places.` 
 
 
+FG: coming along nicely, and here's what to focus on for final revisions: make sure you're minimizing how much you talk about the history of marxism itself compared to marxist historical writing. you have made significant progress on this front since the outline, but keep going! you might also end with a point about the contemporary (= now) influence of marxist historical analysis in the 21st century--a very different time than the 60s/70s heyday of marxist history.
+
 References `I recommend getting rid of the - before each author and adding the years to each citation in your essay` 
 
 -Green, Anna, and Kathleen Troup. The Houses of History : A Critical Reader in Twentieth-	Century History and Theory. New York : New York University Press, 1999., 1999. 277-278.
