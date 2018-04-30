@@ -42,6 +42,8 @@ The future of the “History Wars” is one of the most crucial topics for the h
 
 - Very effective conclusion, I like how you utilize academic vs. popular history as a base for these other issues. While I would like to see an expansion of these other parts of the "history wars", I understand why you didn't, it would add a ton of bulk to this essay, and maybe lose focus. Also enjoy the questions at the end, very appropriate for a topic that is still in full swing today. This is a very tight, cohesive essay overall. Every paragraph clearly has a unique purpose, and I am having trouble finding any larger, structural issues.
 
+FG: great draft. you might consider using the term "history wars" only at the beginning of the essay since that's how it was discussed, but then to leave that term behind and just focus on the larger issues at stake. two things to focus on as you tighten it up: 1) integrating with other topics in the class. 2) abstract your discussion a little from the "history wars" theme. the main point you're talking AROUND in this essay that's super important in the context of historiography generally is the notion of AUTHORITY. you don't even use that term, but that's what the "war" is about. who gets to make history (apart from the past itself)? to my earlier point about the term "history wars", you can easily move from that to questions about authority, and i think that will make your essay have even more impact.
+
 Sources:
 
 Greenberg, Douglas. 1998. “`History Is a Luxury’: Mrs. Thatcher, Mr. Disney, and (Public) History.” Reviews in American History 26 (1): 294.
