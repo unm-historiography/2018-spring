@@ -31,4 +31,5 @@ Summary: Ethnohistory embodied history, archaeology, lingusitics, and enthology;
 Possible: Maybe add a little bit more context. How did this definition impact historiography?
 
 FG: This is shaping up very nicely! This is MUCH more focused compared to the outline, and provides a very nice overview and great quotes. What hasn't emerged quite clearly enough is the relationship b/w anthropology and historiography. Can you point to more concrete cases or theorizing or practical examples where historians were deliberately using different methods, writing styles, etc, in historical work? I don't think you need to do anything more with describing anthropology--it's solid as is. So focus on the link to historiography, linking wherever possible to other class essays.
+
 Louisa: I thought this was very well done. There wasn't much for me to really question or stumble over. It was clear, concise, and well supported. Though, there were a few things that I stated above. Good job!!
