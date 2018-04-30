@@ -122,7 +122,7 @@ times (Green and Troup 1999). While the methods and ideas of the Annales School
 had evolved greatly from its beginnings during the 1970s, it still retained
 elements of the previous eras and there remained Annales scholars who
 revitalized and expanded on the ideas of Bloch, Febvre, and Braudel.
-`The third and final "evolution" of Annales thinking.`
+`The third and final "evolution" of Annales thinking. This would be a good place to add additional works by other Annales thinkers.`
 
 Although the influence and innovation of the Annales School is undebatable, they
 have not been without their critics over the years. One of the most common of
