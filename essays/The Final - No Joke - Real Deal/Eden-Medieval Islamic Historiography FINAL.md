@@ -51,7 +51,7 @@ Mårtensson, U. (2005). *Discourse and Historical Analysis: The Case of al-Ṭab
 
 Osman, G. (2001). *Oral vs. Written Transmission: The Case of Ṭabarī and Ibn Saʿd*, 66–80.
 
-Popkin, J. (2016) From Herodotus to H-Net, 36. 
+Popkin, J. (2016). *From Herodotus to H-Net*, 36. 
 
 White, A. (2009). *Islamic Approach to Studying History*, 17(2), 25.
 
