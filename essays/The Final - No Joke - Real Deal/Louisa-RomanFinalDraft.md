@@ -22,9 +22,9 @@ The Romans are well-known for their military expeditions that would expand their
 
 Both Livy and Julius Caesar take on this national history form in order to convey the greatness of the empire. No matter if the historian focused on the military history or the complete history of the empire, both Livy and Julius Caesar take on a superior tone in their writings that emphasize the Romans in a brighter light when compared to other races or civilization at the time. 
 
-Roman Religion, Christianity, and Historiography
+**Roman Religion, Christianity, and Historiography**
 
-It is not unknown that Roman religion was polytheist one, or a religion believing that more than one God is present. Their deities include Jupiter (better known as Zeus in Greek Mythology), Venus (or Aphrodite), and Mars (or Ares). The Romans believed that every aspect of their lives, their actions, and their successes were dependent upon the happiness of their gods. They believed that the gods and goddesses played a significant role in the course of their lives and the success of the empire. Their religious beliefs and superstitions would have carried over into their political and military lives/decisions, so why would their religion not impact their history?
+It is not unknown that Roman religion was polytheist one, or a religion believing that more than one God is present. Their deities include Jupiter (better known as Zeus in Greek Mythology), Venus (or Aphrodite), and Mars (or Ares). The Romans believed that every aspect of their lives, their actions, and their successes were dependent upon the happiness of their gods. *They believed that the gods and goddesses played a significant role in the course of their lives and the success of the empire.* Their religious beliefs and superstitions would have carried over into their political and military lives/decisions, so why would their religion not impact their history?
 
 Considering how important and central their religion was to the Romans, it can be surprising that it is not one of the focused upon or emphasized themes in their historical writings. Roman religion believed in and placed value on the idea of omens or hints from the heavens when trying to make any big decisions as they were seen a guidance from the deities above.
 **Ammianus Marcellinus** was a Roman historian that lived from 350-395 CE who had served in the Roman army, who also worked to maintain his traditional form of Roman religion in a Christian influenced world. Christianity was legalized by Constantine in 313 CE and by the time of Ammianus, it was widespread across the empire. While it is unclear in his work on the true feelings he felt towards Christians and Christianity as he never completely goes into a discussion surrounding their religion. In his work, *Res Gestae*, he explores a Roman world that had come into contact with a different religion. As he remained true to his religious traditions, he also stayed true to Roman Historiographical traditions - which meant not placing an importance on the societies, people, and ideas that fall outside of the Roman sense of the topic (Hunt, 1985, 193). Christians were not a primary focus of his writing, nor did he want them to be but living under Christian emperors would have made it a subject of discussion for him. Hunt argued in his essay, that Ammianus might not have had a problem with Christianity itself, but its intrusive nature in the political realm of the empire. But didn't the Romans hold their own religion close to them in all matters as well, including politics? What makes Christianity different in that respect?
@@ -33,7 +33,7 @@ We may never know Ammianus's complete feelings towards Christians and their new 
 
 Ammianus Marcellinus is one of the few Roman historians who actually discussed religion in his writings, although, the discussion never developed into anything other than glance-over. He never gave Christians predominant presence in his writings as they were not meant to be his focus; Rome was his focus. Why is he the only notable historian of his time that discussed Christianity in their writings? Did other Roman historians purposefully leave out Christians from their writings? Or did their works not survive the passing of time as Marcellinus's had?
 
-Conclusion
+**Conclusion**
 
 Roman Historiography had been influenced by the writings and styles of Herodotus and Thucydides but had developed in its own way. *The emphasis on the empire and its success is apparent through multiple Roman historians' writings and something that was characteristically Roman at this time*. **They wrote about the world in the way they understood it: with them being at the center.** The creation of the national history genre allowed them to write their history with a complete focus on the Empire, its success, and those who brought about that success (the elite class/families). This genre of historical writing will extend well past the life of the Romans, as Hitler and other historic figures will use national histories for the same goal that some Roman historians had: propaganda. Polybius's, Livy's, and Julius Caesar's works all highlight the emphasis on the superiority of the Romans, although, they are all done in very different ways. Ammianus Marcellius's writings also fit into this model as he stuck to the national history form but included limited discussions on the Roman and Christian religions. Roman historiography will extend into future generations of historical writing as Roman historians provided new models of writing, new focuses on historical material, and new genres, that will be used throughout the time that follows. 
 
@@ -47,9 +47,9 @@ Roman Historiography had been influenced by the writings and styles of Herodotus
 
 
 
-Bibliography
+**Bibliography**
 
-Hunt, E.D. "Christians and Christianity in Ammianus Marcellinus". The Classical Quarterly, Vol. 35, No. 1 (1985): 186-200. http://jstor.org/stable/638815. 
-Mellor, Ronald. The Historians of Ancient Rome An Anthology of the Major Writings. US; Canada: Taylor and Francis Group, 2013. 
-Popkins, Jeremy D. From Herodotus to H-Net: The Story of Historiography. New York; Oxford: Oxford University Press, 2016. 
-Sorek, Susan. Ancient Historians A Student Handbook. New York: Continuum International Publishing Group, 2012.
+Hunt, E.D. "Christians and Christianity in Ammianus Marcellinus". *The Classical Quarterly*, Vol. 35, No. 1 (1985): 186-200. http://jstor.org/stable/638815. 
+Mellor, Ronald. *The Historians of Ancient Rome An Anthology of the Major Writings*. US; Canada: Taylor and Francis Group, 2013. 
+Popkins, Jeremy D. *From Herodotus to H-Net: The Story of Historiography*. New York; Oxford: Oxford University Press, 2016. 
+Sorek, Susan. *Ancient Historians A Student Handbook*. New York: Continuum International Publishing Group, 2012.
