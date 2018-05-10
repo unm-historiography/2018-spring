@@ -48,6 +48,7 @@ Roman Historiography had been influenced by the writings and styles of Herodotus
 
 
 Bibliography
+
 Hunt, E.D. "Christians and Christianity in Ammianus Marcellinus". The Classical Quarterly, Vol. 35, No. 1 (1985): 186-200. http://jstor.org/stable/638815. 
 Mellor, Ronald. The Historians of Ancient Rome An Anthology of the Major Writings. US; Canada: Taylor and Francis Group, 2013. 
 Popkins, Jeremy D. From Herodotus to H-Net: The Story of Historiography. New York; Oxford: Oxford University Press, 2016. 
