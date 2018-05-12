@@ -25,3 +25,23 @@ The Age of Enlightenment shifted central topics within history as well as the me
 
 #Bibliography
 
+Conrad, Sebastian. 2012. “Enlightenment in Global History: A Historiographical Critique.” The American Historical Review, no. 4: xxii.
+
+Popkin, Jeremy D. 2016. From Herodotus to H-Net: The Story of Historiography.
+
+Leffler, Phyllis K. 1978. “From Humanist to Enlightenment Historiography: A Case Study of François Eudes de Mézeray.” French Historical Studies, no. 3: 416. https://doi.org/10.2307/286338.
+
+Schmidt, James. 2014. “Enlightenment as Concept and Context.” Journal of the History of Ideas, no. 4: 677.
+
+Green, Anna, and Kathleen Troup. 1999. The Houses of History : A Critical Reader in Twentieth-Century History and Theory. New York : New York University Press, 1999.
+
+Coleman, Charley. 2010. “Resacralizing the World: The Fate of Secularization in Enlightenment Historiography.” JOURNAL OF MODERN HISTORY 82 (2): 368–95.
+
+Gil, Thomas. 2009. “Leopold Ranke.” In A Companion to the Philosophy of History and Historiography, 383–92.
+
+Taylor, Barbara. 2012. “Enlightenment and the Uses of Woman.” History Workshop Journal, no. 74: 79. https://doi.org/10.1093/hwj/dbr063.
+
+Southgate, Beverley C. 2005. What Is History For? London; New York: Routledge. http://site.ebrary.com/id/10163806.
+
+
+
